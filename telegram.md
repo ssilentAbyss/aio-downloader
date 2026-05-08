@@ -7,6 +7,77 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/18 22:57
+---
+
+## Configir98 — post 8386
+
+<div align="center">
+  <a href="https://t.me/Configir98/8386" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8385
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 𝗣𝗿𝗼𝘅𝘆
+
+Host : 81.12.107.242
+Port : 3030
+
+Host :  93.118.142.196
+Port : 8085
+
+Host :  37.32.20.64
+Port : 2080
+
+Host : 93.126.6.70
+Port : 3128
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8384
+
+<div align="center">
+  <a href="https://t.me/Configir98/8384" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8383
+
+<div align="center">
+  <a href="https://t.me/Configir98/8383" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+---
 📅 بروزرسانی: 1405/02/18 22:08
 ---
 
