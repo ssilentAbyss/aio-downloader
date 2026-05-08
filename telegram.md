@@ -1,10 +1,464 @@
 # خواننده تلگرام
 
 <!-- TOP_NAV START -->
-<div dir="rtl" style="text-align:left; margin-bottom:10px;"><a href="https://github.com/ProAlit/aio-downloader/blob/main/telegram/content/archive_1.md" style="display:inline-block; padding:6px 12px; margin:0 4px; background-color:#2ea44f; color:white; text-decoration:none; border-radius:4px; font-weight:bold;">صفحه بعد</a></div>
+<div dir="rtl" style="text-align:left; margin-bottom:10px;"><a href="https://github.com/ssilentAbyss/aio-downloader/blob/main/telegram/content/archive_1.md" style="display:inline-block; padding:6px 12px; margin:0 4px; background-color:#2ea44f; color:white; text-decoration:none; border-radius:4px; font-weight:bold;">صفحه بعد</a></div>
 <!-- TOP_NAV END -->
 
 <!-- MSG START -->
+
+---
+📅 بروزرسانی: 1405/02/18 22:08
+---
+
+## VahidOOnLine — post 238952
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_238952_1778265521.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ فرماندهی مرکزی ایالات متحده (سنتکام) روز جمعه ۱۸ اردیبهشت اعلام کرد که از زمان آغاز محاصره بنادر ایران، نیروهای آمریکایی در مجموع مسیر ۵۷ شناور تجاری را تغییر داده و ۳ شناور دیگر را نیز از کار انداخته‌اند.
+
+سنتکام همچنین تایید کرد که در حال حاضر سه ناوشکن آمریکایی شامل «یواس‌اس تراکستون» (USS Truxton)، «یواس‌اس رافائل پرالتا» (USS Rafael Peralta) و «یواس‌اس میسون» (USS Mason) در دریای عرب مستقر هستند تا بر اجرای این محاصره نظارت کنند. این ناوشکن‌ها بخشی از نیروی ضربت دریایی هستند که وظیفه دارند مانع از ورود یا خروج هرگونه محموله از بنادر ایران شوند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## Configir98 — post 8382
+
+<div align="center">
+  <a href="https://t.me/Configir98/8382" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8381
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖤 فروش کانفینگ مخصوص شرایط 
+🇮🇷
+
+1 GB  درصد تخفیف ۱۰
+➡️toman  300
+
+
+⚡️قیمت همکاری برای همکاران محترم داخل ربات شارژ شد 
+
+
+⚡️تست بخاطر شرایط موجود نمی‌باشد درخواست نکنین 
+🙏
+
+خرید فقط از طریق محصولات دیگر داخل بات
+❤️
+
+➡️ https://t.me/Admin starling
+</div>
+
+## Configir98 — post 8380
+
+<div align="center">
+  <a href="https://t.me/Configir98/8380" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8379
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ 
+🤩
+🤩
+🤩 تا کانفیگ اختصاصی 
+🎁داخل ربات شارج شده
+
+همین الان
+میتونین با دعوت دوستاتون یک سرور اختصاصی به حجم 
+🚀 
+0️⃣
+0️⃣
+8️⃣ مگابایت
+🚀 دریافت کنین 
+💎
+
+
+😀 @ConfigFreeiR_Bot
+</div>
+
+## Configir98 — post 8378
+
+<div align="center">
+  <a href="https://t.me/Configir98/8378" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8377
+
+<div align="center">
+  <a href="https://t.me/Configir98/8377" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8376
+
+<div align="center">
+  <a href="https://t.me/Configir98/8376" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8375
+
+<div align="center">
+  <a href="https://t.me/Configir98/8375" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8374
+
+<div align="center">
+  <a href="https://t.me/Configir98/8374" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8373
+
+<div align="center">
+  <a href="https://t.me/Configir98/8373" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8372
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔐 𝗩𝟮𝗿𝗮𝘆𝗡𝗚 
+➕ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 
+📱
+
+socks://Og@130.185.75.82:9595#https://t.me/Configir98
+
+vless://054be705-6bbf-42cd-9970-acfc325a34ca@SNApp.ir:80?path=%2FHoseisecu&security=&encryption=none&host=MMW.abanservers.ir&type=ws#https://t.me/Configir98
+
+socks://Og%3D%3D@62.220.126.56:30170#https://t.me/Configir98
+
+socks://Og%3D%3D@79.175.177.96:1080#https://t.me/Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8371
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔐 𝗩𝟮𝗿𝗮𝘆𝗡𝗚 
+➕ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 
+📱
+
+vless://ae7d645a-c03a-4d21-8047-2f77f315a6b7@snapp.ir:8880?path=%2Felctro&security=none&encryption=none&host=clud.extra-tm.ir&type=ws#https://t.me/Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8370
+
+<div align="center">
+  <a href="https://t.me/Configir98/8370" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8369
+
+<div align="center">
+  <a href="https://t.me/Configir98/8369" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8368
+
+<div align="center">
+  <a href="https://t.me/Configir98/8368" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8367
+
+<div align="center">
+  <a href="https://t.me/Configir98/8367" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8366
+
+<div align="center">
+  <a href="https://t.me/Configir98/8366" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8365
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔐 𝗩𝟮𝗿𝗮𝘆𝗡𝗚 
+➕ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 
+📱
+
+vless://73ee5d1d-e2aa-409c-bace-757a7b774d76@javid.purples.ir:80?path=%2F&security=none&encryption=none&host=javid-2.toraniq.ir&type=ws#https://t.me/Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8364
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 𝗣𝗿𝗼𝘅𝘆
+
+Host: 37.148.15.105
+Port: 8080
+
+Host: 193.151.135.130
+Port: 10809
+
+Host: 5.190.69.75
+Port: 8080
+
+Host: 62.220.126.56
+Port: 26132
+
+Host: 185.129.203.147
+Port: 1080
+
+Host: 80.210.56.196
+Port: 1080
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8361
+
+<div align="center">
+  <a href="https://t.me/Configir98/8361" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## IranIntlTV — post 336188
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336188_1778265528.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چرا در شرایط فعلی توافق بین تهران و واشنگتن ممکن نیست؟
+
+ترامپ و نتانیاهو برای تسلیم ج.ا چه طرحی در سر دارند؟
+@iranintltv
+</div>
+
+## FarsiVOA — post 217213
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_217213_1778265529.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئیس‌جمهوری ایالات متحده، از دستیابی به توافقی برای برقراری یک آتش‌بس سه‌روزه (۹، ۱۰ و ۱۱ ماه مه برابر با ۱۹، ۲۰ و ۲۱ اردیبهشت) میان روسیه و اوکراین خبر داد.
+این توافق که به مناسبت سالگرد پیروزی در جنگ جهانی دوم حاصل شده، شامل توقف کامل تمامی فعالیت‌های نظامی و تبادل گسترده زندانیان است.
+پرزیدنت ترامپ که مدت‌هاست برای پایان این جتگ تلاش می‌کند در تروت سوشال نوشت: «امیدوارم این آغاز پایانِ یک جنگ بسیار طولانی، مرگبار و سخت باشد.»
+</div>
+
+## BBCPersian — post 280521
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻حزب دموکرات کردستان ایران از «حمله موشکی» به یک اردوگاهش خبر داد
+
+حزب دموکرات کردستان ایران از «حمله موشکی» حکومت ایران به یک اردوگاهش در نزدیکی اربیل خبر داد.
+
+این حزب می‌گوید کمپ «جژنیکان» که روز جمعه هدف قرار گرفته است، یک منطقه مسکونی و غیرنظامی در نزدیکی اربیل در اقلیم کردستان عراق است و خانواده‌های اعضای حزب دموکرات کردستان ایران در آن سکونت دارند.
+
+حزب دموکرات کردستان ایران می‌گوید که روز پنجشبه هم اهدافی مرتبط با این حزب هدف قرار گرفته بود.
+
+ایران تا کنون درباره این حملات اظهارنظری نکرده است اما پیش از این، سپاه پاسداران بارها مقر‌ها و محل‌های استقرار اعضای این حزب را هدف قرار داده بود.
+
+حملات به احزاب کردی مستقر در اقلیم کردستان ایران، از از زمان آغاز حمله آمریکا و اسرائیل به ایران افزایش یافته است.
+
+https://bbc.in/4cZY32k
+@BBCPersian
+</div>
+
+## configx2ray — post 38661
+
+<div align="center">
+  <a href="https://t.me/ConfigX2ray/38661" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفیگ برای Npv tunnel ⭕️
+
+به هیچ وج دانلود نزنید باهاش
+❤️
+
+رمز فایل : @ConfigX2ray
+
+Channel : https://t.me/ConfigX2ray
+</div>
+
+## alonews — post 118737
+
+<div align="center">
+  <a href="telegram/content/alonews_118737_1778265530.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دو مشاور رئیس‌جمهور آمریکا به آتلانتیک گفتند: «رئیس‌جمهور معتقد است که می‌تواند هر توافقی با ایران را به عنوان پیروزی خود بازاریابی کند».
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 118736
+
+<div align="center">
+  <a href="telegram/content/alonews_118736_1778265530.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈زلنسکی: ما موافقت روسیه را برای انجام تبادل اسیران به صورت ۱۰۰۰ نفر در برابر ۱۰۰۰ نفر دریافت کردیم.
+
+
+🔴همچنین باید آتش‌بس در روزهای ۹، ۱۰ و ۱۱ مه برقرار باشد.
+
+
+🔴از رئیس‌جمهور ایالات متحده و تیمش برای مشارکت دیپلماتیک مؤثرشان تشکر می‌کنم.
+
+
+🔴ما انتظار داریم ایالات متحده اجرای توافقات را از سوی روسیه تضمین کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 118735
+
+<div align="center">
+  <a href="telegram/content/alonews_118735_1778265530.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدای انفجار تو حوالی" قشم" شنیده شده
+
+
+✅ @AloNews خبر جنگ
+</div>
 
 ---
 📅 بروزرسانی: 1405/02/18 21:52
@@ -2835,5 +3289,5 @@ https://bbc.in/4cZY32k
 <!-- MSG END -->
 
 <!-- NAV START -->
-<div dir="rtl" style="text-align:left; margin-top:10px;"><a href="https://github.com/ProAlit/aio-downloader/blob/main/telegram/content/archive_1.md" style="display:inline-block; padding:6px 12px; margin:0 4px; background-color:#2ea44f; color:white; text-decoration:none; border-radius:4px; font-weight:bold;">صفحه بعد</a></div>
+<div dir="rtl" style="text-align:left; margin-top:10px;"><a href="https://github.com/ssilentAbyss/aio-downloader/blob/main/telegram/content/archive_1.md" style="display:inline-block; padding:6px 12px; margin:0 4px; background-color:#2ea44f; color:white; text-decoration:none; border-radius:4px; font-weight:bold;">صفحه بعد</a></div>
 <!-- NAV END -->
