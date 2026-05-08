@@ -7,6 +7,62 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/19 00:36
+---
+
+## Configir98 — post 8392
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔐 𝗩𝟮𝗿𝗮𝘆𝗡𝗚 
+➕ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 
+📱
+
+socks://Og@130.185.75.82:9595#https://t.me/Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8391
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖤 فروش کانفینگ مخصوص شرایط 
+🇮🇷
+
+1 GB  درصد تخفیف ۱۰
+➡️toman  300
+
+
+⚡️قیمت همکاری برای همکاران محترم داخل ربات شارژ شد 
+
+
+⚡️تست بخاطر شرایط موجود نمی‌باشد درخواست نکنین 
+🙏
+
+خرید فقط از طریق محصولات دیگر داخل بات
+❤️
+
+➡️ https://t.me/Admin starling
+</div>
+
+## Configir98 — post 8390
+
+<div align="center">
+  <a href="https://t.me/Configir98/8390" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+---
 📅 بروزرسانی: 1405/02/18 23:29
 ---
 
