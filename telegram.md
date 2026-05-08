@@ -7,6 +7,24 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/19 01:41
+---
+
+## Configir98 — post 8394
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔐 𝗩𝟮𝗿𝗮𝘆𝗡𝗚 
+➕ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 
+📱
+
+vless://3c9b41c8-4c9d-43f0-8924-63d9d80da614@snapp.ir:2095?path=%2FABcD&security=none&encryption=none&host=clud.extra-tm.ir&type=ws#@Configir98
+
+
+✅ @Configir98
+</div>
+
+---
 📅 بروزرسانی: 1405/02/19 01:11
 ---
 
