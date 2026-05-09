@@ -7,6 +7,42 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/19 13:14
+---
+
+## Configir98 — post 8437
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔐 𝗩𝟮𝗿𝗮𝘆𝗡𝗚 
+➕ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 
+📱
+
+socks://Og@62.220.126.56:30170#@Configir98
+
+
+socks://Og@62.220.126.56:30170#@Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8436
+
+<div align="center">
+  <a href="https://t.me/Configir98/8436" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+---
 📅 بروزرسانی: 1405/02/19 11:42
 ---
 
