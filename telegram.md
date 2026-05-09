@@ -7,6 +7,57 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/19 14:37
+---
+
+## Configir98 — post 8442
+
+<div align="center">
+  <a href="https://t.me/Configir98/8442" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8441
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینترنت نسل 5 داره توی کابل و برخی شهر های مهم افغانستان تست و راه اندازی میشه.
+
+👳‍♂️
+</div>
+
+## VIPV2rayNGNP — post 17227
+
+<div align="center">
+  <a href="https://t.me/VIPV2rayNGNP/17227" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه جدید فیلترشکن OpenVpn
+(آخرین نسخه بدون محدودیت)
+@VIPV2rayNGNP
+</div>
+
+## VIPV2rayNGNP — post 17226
+
+<div align="center">
+  <a href="https://t.me/VIPV2rayNGNP/17226" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه جدید فیلترشکن V2rayNG
+(آخرین نسخه بدون محدودیت)
+دانلود با نت ملی
+@VIPV2rayNGNP
+</div>
+
+---
 📅 بروزرسانی: 1405/02/19 14:18
 ---
 
