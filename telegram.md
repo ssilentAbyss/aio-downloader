@@ -7,6 +7,67 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/19 19:39
+---
+
+## Configir98 — post 8453
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 𝗣𝗿𝗼𝘅𝘆
+
+Host: 93.126.6.70
+Port: 3128
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8452
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔐 𝗩𝟮𝗿𝗮𝘆𝗡𝗚 
+➕ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 
+📱
+
+vless://4d8b0067-1d60-43de-9538-722d7476921c@snapp.ir:80?path=%2F&security=none&encryption=none&host=mypassvps-b1eed1fa2e-xprojer.apps.ir-central1.arvancaas.ir&type=ws#https://t.me/Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8451
+
+<div align="center">
+  <a href="https://t.me/Configir98/8451" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## VIPV2rayNGNP — post 17242
+
+<div align="center">
+  <a href="https://t.me/VIPV2rayNGNP/17242" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ NapsternetV Config
+
+
+🔒 Password : @VIPV2rayNGNP
+
+
+👑 @VIPV2rayNGNP
+</div>
+
+---
 📅 بروزرسانی: 1405/02/19 18:43
 ---
 
