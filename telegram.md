@@ -7,6 +7,111 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/19 03:39
+---
+
+## Configir98 — post 8403
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ 𝗣𝗿𝗼𝘅𝘆
+
+tg://socks?server=STARLINK8.vayzro.ir&port=42528&user=%40Porteqal3&pass=Portiqal
+
+tg://socks?server=STARLINK8.vayzro.ir&port=42528&user=%40Porteqal3&pass=Portiqal
+
+https://t.me/proxy?server=QHMEI.MTP.IPSENTER.NET&port=443&secret=eee28b56c84fb54c3b826db2fab1c96711676f6f676c652e636f6d
+
+متصل بدون VPN
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8402
+
+<div align="center">
+  <a href="https://t.me/Configir98/8402" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8401
+
+<div align="center">
+  <a href="https://t.me/Configir98/8401" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8400
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 𝗣𝗿𝗼𝘅𝘆
+
+Host: 46.100.14.42
+Port: 8080
+
+Host: 93.118.142.196
+Port: 8085
+
+Host: 80.210.56.196
+Port: 1080
+
+Host: 37.32.20.64
+Port: 2080
+
+Host: 46.100.17.34
+Port: 3128
+
+Host: 81.12.107.242
+Port: 3030
+
+Host: 93.126.6.70
+Port: 3128
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8399
+
+<div align="center">
+  <a href="https://t.me/Configir98/8399" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## mitivpn — post 16821
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احتمالا از فردا استارت فعالیت رو بزنیم اما فقط پروکسی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/19 02:40
 ---
 
