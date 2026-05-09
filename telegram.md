@@ -7,6 +7,125 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/19 07:25
+---
+
+## Configir98 — post 8430
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔐 𝗩𝟮𝗿𝗮𝘆𝗡𝗚 
+➕ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 
+📱
+
+socks://Og@130.185.75.82:9595#https://t.me/Configir98
+
+socks://Og%3D%3D@130.185.75.82:9595#https://t.me/Configir98
+
+socks://Og%3D%3D@62.220.126.92:25874#https://t.me/Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8429
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔐 𝗩𝟮𝗿𝗮𝘆𝗡𝗚 
+➕ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 
+📱
+
+socks://Og@130.185.75.82:9595#https://t.me/Configir98
+
+socks://Og@130.185.75.82:9595#https://t.me/Configir98
+
+socks://Og@62.220.126.56:30170#https://t.me/Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8427
+
+<div align="center">
+  <a href="https://t.me/Configir98/8427" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8426
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امیدوارم برگردیم به روزایی که مجبور نباشید برای وصل شدن تو هزارتا کانال دنبال کانفیگ بگردید
+
+یکی بیاد منت بزاره یکی بیاد جواب نده
+
+وقتتونم با سین کردن پیامای ما تلف نشه.
+</div>
+
+## Configir98 — post 8425
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعضیا رگباری پیامای دایرکت و فور میزنن یا هر نیم ساعت یه بار ری اکشن میخوان
+
+این کارا وقت مردم و گرفتنه اونم تو این شرایط که به زور وصل میشن
+حجم پیام بیخودی زیاد میشه تلگرام به سختی بالا میاد
+
+برای همین سعی میکنم تو کانال پیام اضافه نزارم
+دورادور دوستون دارم زیاد به مدت نامحدود 
+❤️
+
+#MARTiN
+</div>
+
+## Configir98 — post 8406
+
+<div align="center">
+  <a href="https://t.me/Configir98/8406" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8405
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+𝗠𝗔𝗥𝗧𝗶𝗡ᶤʳ⁹⁸🖤.npvt
+</div>
+
+## Configir98 — post 8404
+
+<div align="center">
+  <a href="https://t.me/Configir98/8404" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+---
 📅 بروزرسانی: 1405/02/19 03:39
 ---
 
