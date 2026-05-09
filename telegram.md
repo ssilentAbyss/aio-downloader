@@ -7,6 +7,70 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/20 02:34
+---
+
+## iranintltv — post 336366
+
+<div align="center">
+  <a href="telegram/content/iranintltv_336366_1778367876.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک تایمز گزارش داد روسیه برای تقویت توان جمهوری اسلامی در برابر حملات آمریکا، کالاهای نظامی و تجاری از طریق دریای خزر به ایران ارسال می‌کند.
+
+بر اساس این گزارش، محصور بودن دریای خزر رصد تبادلات دریایی میان دو کشور را دشوار کرده است.
+
+گفت‌وگو با عطا حسینیان، روزنامه‌نگار
+@iranintltv
+</div>
+
+## iranintltv — post 336365
+
+<div align="center">
+  <a href="telegram/content/iranintltv_336365_1778367877.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با گذشت بیش از دو ماه از قطع اینترنت، جمهوری اسلامی از تاریکی دیجیتال برای کاهش هزینه سرکوب و افزایش میزان خشونت استفاده می‌کند.
+
+همزمان در دانشگاه‌ها نیز معترضان علاوه بر بازداشت، با محرومیت از تحصیل، اخراج و امنیتی شدن فضا روبه‌رو هستند.
+
+گفت‌وگو با رقیه رضایی، روزنامه‌نگار
+@iranintltv
+</div>
+
+## iranintltv — post 336364
+
+<div align="center">
+  <a href="telegram/content/iranintltv_336364_1778367879.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این روزها یک سوال مهم در میان ایرانیان مطرح است: اگر دوباره قیام کردیم و جمهوری اسلامی بار دیگر به کشتار دست زد، چه باید کرد؟ این سوال بسیار تکان‌دهنده است، اما در عین حال دغدغه‌ی بسیاری از ایرانی‌هاست. به نظر می‌رسد با توجه به نشانه‌های کنونی انباشت خشم در جامعه و حرکت به سوی شرایط پیش از قیام، پیدا کردن پاسخ درست برای این سوال یکی از مهم‌ترین دغدغه‌های امروز مردم ایران است.
+@iranintltv
+</div>
+
+## iranintltv — post 336363
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336363" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: سوال مهم درباره سرنگونی
+@iranintlTV
+</div>
+
+## iranintltv — post 336362
+
+<div align="center">
+  <img src="telegram/content/iranintltv_336362_1778367881.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس جمهوری ایالات متحده دو طرح گرافیکی را در تروث سوشال منتشر کرد که در آن ۱۵۹ کشتی جنگی جمهوری اسلامی در زمان بایدن و اوباما بر روی آب و در دوره او غرق شده و در زیر آب به تصویر کشیده شده‌اند.
+
+او در پست دیگری پهپادهای جمهوری اسلامی را در حال سوختن نشان داده است.
+https://iranintl.com/202605096279
+</div>
+
+---
 📅 بروزرسانی: 1405/02/20 01:30
 ---
 
