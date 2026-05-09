@@ -7,6 +7,24 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/19 15:03
+---
+
+## Configir98 — post 8443
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔐 𝗩𝟮𝗿𝗮𝘆𝗡𝗚 
+➕ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 
+📱
+
+vless://0146ee19-29eb-400b-b50b-b032bddafd65@camp.nahidapp.com:443?path=%2FIF_VPN_Bot&security=tls&encryption=none&host=camp.nahidapp.com&type=ws#https://t.me/Configir98
+
+
+✅ @Configir98
+</div>
+
+---
 📅 بروزرسانی: 1405/02/19 14:37
 ---
 
