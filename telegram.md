@@ -7,6 +7,50 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/19 20:59
+---
+
+## Configir98 — post 8458
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ مجدد
+🤩
+
+0️⃣
+0️⃣
+6️⃣ تا کانفیگ اختصاصی 
+🎁داخل ربات شارج شده
+
+همین الان
+با دعوت دوستاتون یک سرور اختصاصی به حجم 
+🚀 
+0️⃣
+0️⃣
+8️⃣ مگابایت
+🚀 دریافت کنین 
+💎
+
+
+😀 @ConfigFreeiR_Bot
+</div>
+
+## Configir98 — post 8457
+
+<div align="center">
+  <a href="https://t.me/Configir98/8457" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+---
 📅 بروزرسانی: 1405/02/19 20:42
 ---
 
