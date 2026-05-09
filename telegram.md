@@ -7,6 +7,39 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/19 18:43
+---
+
+## VIPV2rayNGNP — post 17240
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🏳 V2rayng + Psiphon 
+📱
+
+vless://4d8b0067-1d60-43de-9538-722d7476921c@snapp.ir:80?path=%2F&security=none&encryption=none&host=mypassvps-b1eed1fa2e-xprojer.apps.ir-central1.arvancaas.ir&type=ws#vipV2rayNGnp
+
+لینک آموزش کلیک کن
+
+🦋 Channel : @vipV2rayNGnp
+</div>
+
+## VIPV2rayNGNP — post 17239
+
+<div align="center">
+  <a href="https://t.me/VIPV2rayNGNP/17239" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ NapsternetV Config
+
+
+🔒 Password : @VIPV2rayNGNP
+
+
+👑 @VIPV2rayNGNP
+</div>
+
+---
 📅 بروزرسانی: 1405/02/19 18:13
 ---
 
