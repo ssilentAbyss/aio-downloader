@@ -7,6 +7,287 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/20 12:21
+---
+
+## Configir98 — post 8520
+
+<div align="center">
+  <a href="https://t.me/Configir98/8520" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8519
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥 همین الان 
+0️⃣
+0️⃣
+1️⃣ تا کانفیگ اختصاصی داخل ربات شارج شد
+
+میتونین با دعوت دوستاتون یک سرور اختصاصی به حجم 
+🚀 
+0️⃣
+0️⃣
+8️⃣ مگابایت
+🚀 دریافت کنین 
+💎
+
+
+🤖 @ConfigFreeiR_Bot
+</div>
+
+## Configir98 — post 8518
+
+<div align="center">
+  <a href="telegram/content/Configir98_8518_1778403063.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رئیس اتحادیه کسب‌وکارهای اینترنتی: درآمد برخی فعالان شبکه‌های اجتماعی به نزدیک صفر رسیده است.
+</div>
+
+## Configir98 — post 8517
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رئیس اتحادیه کسب‌وکارهای اینترنتی:
+
+درآمد برخی فعالان شبکه‌های اجتماعی به نزدیک صفر رسیده است.
+</div>
+
+## Configir98 — post 8516
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خودم طرفدار تیم فنر باغچه ی لیسبونگ سوئیسم 
+😒
+</div>
+
+## Configir98 — post 8515
+
+<div align="center">
+  <a href="telegram/content/Configir98_8515_1778403064.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨امروز الکلاسیکو داریم
+
+رئالیا ❤️ بزارن
+
+بارساییا 🔥 بزار
+</div>
+
+## Configir98 — post 8514
+
+<div align="center">
+  <a href="https://t.me/Configir98/8514" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8513
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسم این زندگــــــی نبود
+یک مبارزه تمام عیار بود...
+</div>
+
+## Configir98 — post 8512
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔐 𝗩𝟮𝗿𝗮𝘆𝗡𝗚 
+➕ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 
+📱
+
+vless://f3ef1255-1807-45d5-8872-324c6943175b@iman.neticoapp.ir:80/?type=ws&encryption=none&flow=&host=srv3.diamond-tech.online&path=%2F#https://t.me/Configir98
+
+
+✅ @Configir98
+</div>
+
+## Persian_Trend_Official — post 13811
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_13811_1778403065.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کره شمالی «حمله هسته‌ای خودکار» را وارد قانون اساسی کرد
+
+بر اساس گزارش روزنامه «تلگراف»، کره شمالی قانون اساسی خود را به‌گونه‌ای اصلاح کرده که در صورت کشته شدن یا ناتوان شدن «کیم جونگ اون» بر اثر حمله خارجی، پاسخ هسته‌ای به‌صورت خودکار الزامی شود.
+
+طبق این گزارش:
+
+▪️ اگر ساختار فرماندهی نیروهای هسته‌ای کره شمالی در معرض تهدید قرار گیرد
+▪️ ارتش موظف است فوراً حمله هسته‌ای تلافی‌جویانه را آغاز کند
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13810
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_13810_1778403066.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دقایقی پیش یک فروند جنگنده F-35 Lightning II متعلق به نیروی هوایی ایالات متحده، هنگام پرواز بر فراز دریای عمان، کد اضطراری ۷۷۰۰ را ارسال کرد.
+
+🔹این کد نشان‌دهنده بروز وضعیت اضطراری جدی و نیاز فوری هواپیما به فرود است.
+
+☆Phantom☆
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## configx2ray — post 38710
+
+<div align="center">
+  <a href="https://t.me/ConfigX2ray/38710" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفیگ برای Npv tunnel ⭕️
+
+به هیچ وج دانلود نزنید باهاش
+❤️
+
+رمز فایل : @ConfigX2ray
+
+Channel : https://t.me/ConfigX2ray
+</div>
+
+## Configir98 — post 8520
+
+<div align="center">
+  <a href="https://t.me/Configir98/8520" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8519
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥 همین الان 
+0️⃣
+0️⃣
+1️⃣ تا کانفیگ اختصاصی داخل ربات شارج شد
+
+میتونین با دعوت دوستاتون یک سرور اختصاصی به حجم 
+🚀 
+0️⃣
+0️⃣
+8️⃣ مگابایت
+🚀 دریافت کنین 
+💎
+
+
+🤖 @ConfigFreeiR_Bot
+</div>
+
+## Configir98 — post 8518
+
+<div align="center">
+  <a href="telegram/content/Configir98_8518_1778403068.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رئیس اتحادیه کسب‌وکارهای اینترنتی: درآمد برخی فعالان شبکه‌های اجتماعی به نزدیک صفر رسیده است.
+</div>
+
+## Configir98 — post 8517
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رئیس اتحادیه کسب‌وکارهای اینترنتی:
+
+درآمد برخی فعالان شبکه‌های اجتماعی به نزدیک صفر رسیده است.
+</div>
+
+## Configir98 — post 8516
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خودم طرفدار تیم فنر باغچه ی لیسبونگ سوئیسم 
+😒
+</div>
+
+## Configir98 — post 8515
+
+<div align="center">
+  <a href="telegram/content/Configir98_8515_1778403069.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨امروز الکلاسیکو داریم
+
+رئالیا ❤️ بزارن
+
+بارساییا 🔥 بزار
+</div>
+
+## Configir98 — post 8514
+
+<div align="center">
+  <a href="https://t.me/Configir98/8514" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8513
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسم این زندگــــــی نبود
+یک مبارزه تمام عیار بود...
+</div>
+
+## Configir98 — post 8512
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔐 𝗩𝟮𝗿𝗮𝘆𝗡𝗚 
+➕ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 
+📱
+
+vless://f3ef1255-1807-45d5-8872-324c6943175b@iman.neticoapp.ir:80/?type=ws&encryption=none&flow=&host=srv3.diamond-tech.online&path=%2F#https://t.me/Configir98
+
+
+✅ @Configir98
+</div>
+
+---
 📅 بروزرسانی: 1405/02/20 11:14
 ---
 
