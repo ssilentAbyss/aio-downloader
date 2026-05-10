@@ -7,6 +7,175 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/20 13:40
+---
+
+## Configir98 — post 8524
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔐 𝗩𝟮𝗿𝗮𝘆𝗡𝗚 
+➕ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 
+📱
+
+vmess://eyJhZGQiOiJ3d3cuYXJ2YW5jbG91ZC5pciIsImFpZCI6IjAiLCJhbHBuIjoiIiwiZnAiOiIiLCJob3N0IjoidmlwNi5hcmlhdGFrcG95YW4uaXIiLCJpZCI6Ijc2NmQ0YWIyLWMwOTItNDUxZi1iNWY0LWYzM2M4NDk3ODA2NSIsIm5ldCI6IndzIiwicGF0aCI6Ii9hcmlhIiwicG9ydCI6IjgwODAiLCJwcyI6Imh0dHBzOi8vdC5tZS9Db25maWdpcjk4Iiwic2N5IjoiYXV0byIsInNuaSI6IiIsInRscyI6IiIsInR5cGUiOiIiLCJ2IjoiMiJ9
+
+socks://Og@62.220.126.92:30871#https://t.me/Configir98
+
+socks://Og@62.220.126.56:30170#https://t.me/Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8523
+
+<div align="center">
+  <a href="https://t.me/Configir98/8523" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+با این پروکسی ترکیب کنید :
+
+tg://proxy?server=62.238.0.202&port=4455&secret=dd104462821249bd7ac519130220c25d09
+
+
+✅ @Configir98
+</div>
+
+## Persian_Trend_Official — post 13815
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کویت: چند پهپاد «متخاصم» در حریم هوایی کشور شناسایی شدند
+
+💢وزارت دفاع کویت اعلام کرد بامداد امروز چند پهپاد «متخاصم» در حریم هوایی این کشور شناسایی شده‌اند.
+
+💢سخنگوی وزارت دفاع در بیانیه‌ای اعلام کرد این پهپادها «طبق رویه‌های تعیین‌شده» رهگیری و با آن‌ها مقابله شده است.
+
+تا این لحظه جزئیاتی درباره منشأ پهپادها، تعداد دقیق آن‌ها یا خسارات احتمالی منتشر نشده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13814
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13814_1778407827.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇸🇾 اتفاقی تاریخی برای سوریه؛
+پس از بیش از ۱۵ سال، اولین تراکنش با کارت‌های ویزا و مسترکارت در این کشور انجام شد.
+
+این رویداد می‌تواند نشانه‌ای از بازگشت تدریجی سوریه به شبکه مالی جهانی پس از سال‌ها انزوای ناشی از تحریم‌ها باشد.
+
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 19871
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری مهر:
+
+دقایقی پیش صدای یک انفجار شدید در شهر چابهار شنیده شده است.
+هنوز جزئیات بیشتری از علت یا محل دقیق انفجار منتشر نشده است.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 389208
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رفتم شیرینی فروشی، پرسیدم ببخشید این ظرف گِرده که روش پسته داره چیه؟
+یکطوری نگاهم کرد گفت این دسرمون خیلی لایت و کریمیه با تاپینگِ سالتِد کارامل سیروپ، با پودرِ پستاچیو.
+گفتم نخرم زشته؛ خریدم رفتم حساب کردم، توی فاکتور نوشته بود شیر برنج. :)))))))))
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389207
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389207_1778407828.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داره میگه جنده‌ای، کصکش ادا تنگا رو درنیار دیگه 🤭🤭🤭
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## configx2ray — post 38711
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان چند عدد سرور اختصاصی 3 گیگ هم موجوده قیمت با بیشترین تخفیف تقدیم میشه 490 هزار تومان
+❤️
+
+سرور کاملا تضمینی میباشد بدونه ضریب همراه با ساب جهت استعلام حجم مصرفیتون
+🌟
+
+نیاز داشتید میتونید به ایدی زیر پیام بدید
+⭐️ :
+
+ID : https://t.me/serverfast2 
+💠
+</div>
+
+## Configir98 — post 8524
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔐 𝗩𝟮𝗿𝗮𝘆𝗡𝗚 
+➕ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 
+📱
+
+vmess://eyJhZGQiOiJ3d3cuYXJ2YW5jbG91ZC5pciIsImFpZCI6IjAiLCJhbHBuIjoiIiwiZnAiOiIiLCJob3N0IjoidmlwNi5hcmlhdGFrcG95YW4uaXIiLCJpZCI6Ijc2NmQ0YWIyLWMwOTItNDUxZi1iNWY0LWYzM2M4NDk3ODA2NSIsIm5ldCI6IndzIiwicGF0aCI6Ii9hcmlhIiwicG9ydCI6IjgwODAiLCJwcyI6Imh0dHBzOi8vdC5tZS9Db25maWdpcjk4Iiwic2N5IjoiYXV0byIsInNuaSI6IiIsInRscyI6IiIsInR5cGUiOiIiLCJ2IjoiMiJ9
+
+socks://Og@62.220.126.92:30871#https://t.me/Configir98
+
+socks://Og@62.220.126.56:30170#https://t.me/Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8523
+
+<div align="center">
+  <a href="https://t.me/Configir98/8523" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+با این پروکسی ترکیب کنید :
+
+tg://proxy?server=62.238.0.202&port=4455&secret=dd104462821249bd7ac519130220c25d09
+
+
+✅ @Configir98
+</div>
+
+---
 📅 بروزرسانی: 1405/02/20 12:30
 ---
 
