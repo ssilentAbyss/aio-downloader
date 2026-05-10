@@ -7,6 +7,283 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/20 19:19
+---
+
+## Configir98 — post 8539
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔐 𝗩𝟮𝗿𝗮𝘆𝗡𝗚 
+➕ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 
+📱
+
+vless://d11402f2-af49-484e-9f60-6acaa7e67ace@iman.neticoapp.ir:80?path=%2F&security=none&encryption=none&type=ws#https://t.me/Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8538
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖤 فروش کانفینگ مخصوص شرایط 
+🇮🇷
+
+1 GB  درصد تخفیف ۱۰
+➡️toman  300
+
+
+⚡️قیمت همکاری برای همکاران محترم داخل ربات شارژ شد 
+
+
+⚡️تست بخاطر شرایط موجود نمی‌باشد درخواست نکنین 
+🙏
+
+خرید فقط از طریق محصولات دیگر داخل بات
+❤️
+
+➡️ https://t.me/Admin starling
+</div>
+
+## Configir98 — post 8537
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔐 𝗩𝟮𝗿𝗮𝘆𝗡𝗚 
+➕ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 
+📱
+
+
+{"remarks":"https://t.me/Configir98","log":{"loglevel":"warning"},"inbounds":[{"tag":"socks","port":10808,"protocol":"socks","settings":{"auth":"noauth","udp":true,"userLevel":8},"sniffing":{"enabled":true,"destOverride":["http","tls"],"routeOnly":false}}],"outbounds":[{"tag":"proxy","protocol":"vless","settings":{"vnext":[{"address":"snapp.ir","port":80,"users":[{"id":"00669e97-27fb-4273-878b-d514f7f4fd4b","level":8,"encryption":"none"}]}]},"streamSettings":{"network":"ws","wsSettings":{"path":"/","headers":{"Host":"striker.starferi.ir"}}},"mux":{"enabled":false,"concurrency":-1,"xudpConcurrency":8,"xudpProxyUDP443":""}},{"tag":"direct","protocol":"freedom","settings":{"domainStrategy":"UseIP"},"mux":{"enabled":false,"concurrency":8,"xudpConcurrency":8,"xudpProxyUDP443":""}},{"tag":"block","protocol":"blackhole","settings":{"response":{"type":"http"}},"mux":{"enabled":false,"concurrency":8,"xudpConcurrency":8,"xudpProxyUDP443":""}}],"dns":{"servers":["1.1.1.1"],"hosts":{"domain:googleapis.cn":"googleapis.com","dns.alidns.com":["223.5.5.5","223.6.6.6","2400:3200::1","2400:3200:baba::1"],"one.one.one.one":["1.1.1.1","1.0.0.1","2606:4700:4700::1111","2606:4700:4700::1001"],"dot.pub":["1.12.12.12","120.53.53.53"],"dns.google":["8.8.8.8","8.8.4.4","2001:4860:4860::8888","2001:4860:4860::8844"],"dns.quad9.net":["9.9.9.9","149.112.112.112","2620:fe::fe","2620:fe::9"],"common.dot.dns.yandex.net":["77.88.8.8","77.88.8.1","2a02:6b8::feed:0ff","2a02:6b8:0:1::feed:0ff"]}},"routing":{"domainStrategy":"IPIfNonMatch","rules":[{"type":"field","ip":["1.1.1.1"],"outboundTag":"proxy","port":"53"},{"type":"field","ip":["223.5.5.5"],"outboundTag":"direct","port":"53"}]}}
+
+
+
+✅ @Configir98
+</div>
+
+## Persian_Trend_Official — post 13834
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مستند رضاشاه، پدر ایران نوین 🔥
+</div>
+
+## Persian_Trend_Official — post 13833
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مستند رضاشاه، پدر ایران نوین 🔥
+</div>
+
+## Persian_Trend_Official — post 13832
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مستند رضاشاه، پدر ایران نوین 🔥
+</div>
+
+## Persian_Trend_Official — post 13831
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ رئیس انرژی: پارسال 9 هزار مگاوات کمبود برق داشتیم و امسال 24 هزارمگاوات؛ مردم برای قطعی های برق در هر 7 روز هفته خودشونو آماده کنن. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13830
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_13830_1778428164.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست ترامپ در تروث سوشال لحظاتی قبل منتشر کرد.
+</div>
+
+## IranianMinds — post 19904
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_19904_1778428164.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پست جدید ترامپ.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19903
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ارتش اسرائیل :
+
+از ساکنان روستاهای دیرالزهرانی، جرجو و سجاد در جنوب لبنان می‌خواهیم تخلیه شده و یک کیلومتر از این مناطق فاصله بگیرن چون داریم میایم بالا سر حزب الله.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19902
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_19902_1778428165.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+ونزوئلا در حال حاضر کشوری بسیار شاد است. اونا خیلی بدبخت بودند و حالا خوشحال هستند.
+
+نفتی که از اونجا بیرون میاد بسیار زیاد است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19901
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 معاون وزیر امور خارجه جمهوری اسلامی:
+
+حضور ناوهای جنگی فرانسه و انگلیس در تنگه هرمز با واکنش فوری و قاطع مواجه خواهد شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19900
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_19900_1778428168.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نه داداش تو نمیدونی جمهوری اسلامی خیلی خوب داره دووم میاره جلو آمریکا و اسرائیل :
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19899
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_19899_1778428169.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نتانیاهو:
+
+جنگ با ایران تمام نشده است زیرا هنوز اورانیوم غنی شده وجود دارد که باید از ایران خارج شود.
+
+هنوز سایت های غنی سازی وجود دارد که باید برچیده شوند. هنوز هم پروکسی هایی وجود دارند که ایران از آنها پشتیبانی می کند و موشک های بالستیکی که آنها می خواهند تولید کنند.
+
+ما خیلی اونارو تحقیر کردیم، اما جای کار وجود دارد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19897
+
+<div align="center">
+  <a href="https://t.me/IranianMinds/19897" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📲#اپلیکیشن اندروید سایت جهانی دربی بت
+
+👍اسپانسر لیگ انگلیس
+👍
+🔥امکان شارژ امن از طریق کارت بانکی
+➖➖➖➖➖➖➖➖➖
+
+🪙همین حالا عضو شوید 👇
+https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## IranianMinds — post 19896
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_19896_1778428172.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+ge20
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## Configir98 — post 8539
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔐 𝗩𝟮𝗿𝗮𝘆𝗡𝗚 
+➕ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 
+📱
+
+vless://d11402f2-af49-484e-9f60-6acaa7e67ace@iman.neticoapp.ir:80?path=%2F&security=none&encryption=none&type=ws#https://t.me/Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8538
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖤 فروش کانفینگ مخصوص شرایط 
+🇮🇷
+
+1 GB  درصد تخفیف ۱۰
+➡️toman  300
+
+
+⚡️قیمت همکاری برای همکاران محترم داخل ربات شارژ شد 
+
+
+⚡️تست بخاطر شرایط موجود نمی‌باشد درخواست نکنین 
+🙏
+
+خرید فقط از طریق محصولات دیگر داخل بات
+❤️
+
+➡️ https://t.me/Admin starling
+</div>
+
+## Configir98 — post 8537
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔐 𝗩𝟮𝗿𝗮𝘆𝗡𝗚 
+➕ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 
+📱
+
+
+{"remarks":"https://t.me/Configir98","log":{"loglevel":"warning"},"inbounds":[{"tag":"socks","port":10808,"protocol":"socks","settings":{"auth":"noauth","udp":true,"userLevel":8},"sniffing":{"enabled":true,"destOverride":["http","tls"],"routeOnly":false}}],"outbounds":[{"tag":"proxy","protocol":"vless","settings":{"vnext":[{"address":"snapp.ir","port":80,"users":[{"id":"00669e97-27fb-4273-878b-d514f7f4fd4b","level":8,"encryption":"none"}]}]},"streamSettings":{"network":"ws","wsSettings":{"path":"/","headers":{"Host":"striker.starferi.ir"}}},"mux":{"enabled":false,"concurrency":-1,"xudpConcurrency":8,"xudpProxyUDP443":""}},{"tag":"direct","protocol":"freedom","settings":{"domainStrategy":"UseIP"},"mux":{"enabled":false,"concurrency":8,"xudpConcurrency":8,"xudpProxyUDP443":""}},{"tag":"block","protocol":"blackhole","settings":{"response":{"type":"http"}},"mux":{"enabled":false,"concurrency":8,"xudpConcurrency":8,"xudpProxyUDP443":""}}],"dns":{"servers":["1.1.1.1"],"hosts":{"domain:googleapis.cn":"googleapis.com","dns.alidns.com":["223.5.5.5","223.6.6.6","2400:3200::1","2400:3200:baba::1"],"one.one.one.one":["1.1.1.1","1.0.0.1","2606:4700:4700::1111","2606:4700:4700::1001"],"dot.pub":["1.12.12.12","120.53.53.53"],"dns.google":["8.8.8.8","8.8.4.4","2001:4860:4860::8888","2001:4860:4860::8844"],"dns.quad9.net":["9.9.9.9","149.112.112.112","2620:fe::fe","2620:fe::9"],"common.dot.dns.yandex.net":["77.88.8.8","77.88.8.1","2a02:6b8::feed:0ff","2a02:6b8:0:1::feed:0ff"]}},"routing":{"domainStrategy":"IPIfNonMatch","rules":[{"type":"field","ip":["1.1.1.1"],"outboundTag":"proxy","port":"53"},{"type":"field","ip":["223.5.5.5"],"outboundTag":"direct","port":"53"}]}}
+
+
+
+✅ @Configir98
+</div>
+
+---
 📅 بروزرسانی: 1405/02/20 18:19
 ---
 
