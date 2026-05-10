@@ -7,6 +7,221 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/20 20:00
+---
+
+## iranintltv — post 336503
+
+<div align="center">
+  <a href="telegram/content/iranintltv_336503_1778430627.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده نشان می‌دهند یکشنبه ۲۰ اردیبهشت ایرانیان مقیم شهرهای مونیخ در آلمان، وین اتریش و آرهوس دانمارک علیه جمهوری اسلامی تجمع کردند.
+</div>
+
+## iranintltv — post 336502
+
+<div align="center">
+  <a href="telegram/content/iranintltv_336502_1778430630.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کی‌یر استارمر، نخست‌وزیر بریتانیا، پس از نتایج ضعیف حزب کارگر در انتخابات گفت پیام رای‌دهندگان را شنیده، اما تاکید کرد کنار نخواهد رفت. با این حال، فشارها در درون حزب افزایش یافته است و دست‌کم ۲۱ نماینده حزب کارگر خواستار کناره‌گیری او شده‌اند.
+
+گفت‌وگو با تاج‌الدین سروش، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## iranintltv — post 336501
+
+<div align="center">
+  <a href="telegram/content/iranintltv_336501_1778430631.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران اینترنشنال نشان می‌دهد ایرانیان مقیم پاریس روز ۲۰ اردیبهشت‌ماه در پاسخ به فراخوان شاهزاده رضا پهلوی، با برگزاری راهپیمایی و تجمع در این شهر حضور یافتند.
+@iranintltv
+</div>
+
+## iranintltv — post 336500
+
+<div align="center">
+  <a href="telegram/content/iranintltv_336500_1778430633.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، ایرانیان ساکن هلند و جمهوری چک، یکشنبه ۲۰ اردیبهشت با فراخوان شاهزاده رضا پهلوی و در اعتراض به اعدام‌های جمهوری اسلامی، در شهرهای آمستردام و پراگ تجمع کردند.
+</div>
+
+## iranintltv — post 336499
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336499" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار نیم‌روزی | یکشنبه ۲۰ اردیبهشت
+@iranintlTV
+</div>
+
+## iranintltv — post 336498
+
+<div align="center">
+  <img src="telegram/content/iranintltv_336498_1778430635.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه اردن حمله با پهپاد به کویت را محکوم کرد و آن را نقض آشکار قوانین بین‌المللی و منشور سازمان ملل و تجاوز به حاکمیت کویت دانست.
+اردن تاکید کرد در کنار کویت ایستاده و از هر اقدامی که این کشور برای حفظ حاکمیت، امنیت و سلامت شهروندان و ساکنانش انجام دهد، حمایت می‌کند.
+https://iranintl.com/202605108954
+</div>
+
+## iranintltv — post 336497
+
+<div align="center">
+  <a href="telegram/content/iranintltv_336497_1778430636.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با گذشت دو ماه از انتخاب مجتبی خامنه‌ای به عنوان سومین رهبر نظام، غیبت ادامه‌دار او بر روند دیپلماسی تاثیر گذاشته است. وال‌استریت ژورنال نوشت در حالی که مذاکره‌کنندگان به تصمیم مجتبی خامنه‌ای نیاز دارند او در بستر مرگ است. مجتبی کجاست و چه می‌کند؟
+
+
+گزارشی از مجتبا پورمحسن
+@iranintltv
+</div>
+
+## iranintltv — post 336496
+
+<div align="center">
+  <img src="telegram/content/iranintltv_336496_1778430638.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهور آمریکا، در بخش دیگری از مصاحبه با شریل اتکیسون، خبرنگار آمریکایی، در پاسخ به این که آیا جنگ علیه جمهوری اسلامی تمام شده، گفت: «نه، من این را نگفتم. من گفتم آن‌ها شکست خورده‌اند، اما این به معنای پایان کارشان نیست.»
+
+ترامپ افزود: «ما می‌توانیم دو هفته دیگر هم وارد عمل شویم و هر هدفی را بزنیم. اهداف مشخصی داشتیم و احتمالا ۷۰ درصد آن‌ها را زده‌ایم، اما اهداف دیگری هم داریم که ممکن است به آن‌ها حمله کنیم.»
+
+رییس‌جمهور آمریکا تاکید کرد: «اما حتی اگر این کار را هم نکنیم، سال‌های زیادی طول می‌کشد تا آن‌ها دوباره بازسازی کنند.»
+https://iranintl.com/202605102371
+</div>
+
+## iranintltv — post 336495
+
+<div align="center">
+  <a href="telegram/content/iranintltv_336495_1778430639.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری ایرنا گزارش داد پاسخ جمهوری اسلامی به آخرین متن پیشنهادی آمریکا برای پایان دادن به جنگ، یکشنبه از طریق میانجی پاکستانی ارسال شده است.
+
+جزییات بیشتر با مرضیه حسینی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## iranintltv — post 336494
+
+<div align="center">
+  <a href="telegram/content/iranintltv_336494_1778430641.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس ویدیوی رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم فرانسه یکشنبه ۲۰ اردیبهشت در تجمع اعتراضی پاریس پرفورمنسی با موضوع انقلاب ملی اجرا کردند.
+</div>
+
+## iranintltv — post 336493
+
+<div align="center">
+  <img src="telegram/content/iranintltv_336493_1778430644.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده، سنتکام، اعلام کرد از زمان آغاز محاصره دریایی جنوب ایران ۶۱ کشتی تجاری مجبور به تغییر مسیر شده‌اند. چهار کشتی نیز در پی حملات نیروهای آمریکایی از کار افتاده و متوقف شده‌اند.
+سنتکام افزود بیش از ۲۰ کشتی جنگی متعلق به ایالات متحده در حال اجرای عملیات در این منطقه هستند.
+https://iranintl.com/202605105959
+</div>
+
+## iranintltv — post 336492
+
+<div align="center">
+  <a href="telegram/content/iranintltv_336492_1778430644.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران‌اینترنشنال حاکی است گروهی از ایرانیان ساکن بریتانیا یکشنبه ۲۰ اردیبهشت در پی فراخوان شاهزاده رضا پهلوی در لندن تجمع کردند.
+</div>
+
+## iranintltv — post 336491
+
+<div align="center">
+  <a href="telegram/content/iranintltv_336491_1778430647.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+معترضان ایرانی در بانکوک، پایتخت تایلند، هم‌صدا با کارزار جهانی «یک ملت در گروگان»، خواستار توجه جامعه بین‌المللی به وضعیت بحرانی داخل ایران شدند.
+@iranintltv
+</div>
+
+## iranintltv — post 336490
+
+<div align="center">
+  <a href="telegram/content/iranintltv_336490_1778430649.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیل راثبورن، مقام پیشین امنیت المپیک، درباره احتمال برنامه‌ریزی شبکه‌های مخفی جمهوری اسلامی و گروه‌های نیابتی برای انجام اقدامات تروریستی در جریان جام جهانی فوتبال در آمریکا هشدار داد.
+
+گفت‌وگو با رها پوربخش، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## iranintltv — post 336489
+
+<div align="center">
+  <a href="telegram/content/iranintltv_336489_1778430651.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان ساکن جمهوری ایرلند، یکشنبه ۲۰ اردیبهشت در اعتراض به اعدام‌های جمهوری اسلامی، در شهر دوبلین تجمع کردند.
+</div>
+
+## iranintltv — post 336488
+
+<div align="center">
+  <a href="telegram/content/iranintltv_336488_1778430653.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران اینترنشنال نشان می‌دهد شمار زیادی از ایرانیان مقیم هامبورگ روز یکشنبه ۲۰ اردیبهشت‌ماه در پی فراخوان شاهزاده رضا پهلوی، در اعتراض به اعدام‌های جمهوری اسلامی و قطع اینترنت در ایران راهپیمایی کردند.
+</div>
+
+## iranintltv — post 336487
+
+<div align="center">
+  <a href="telegram/content/iranintltv_336487_1778430654.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، ایرانیان مقیم سوئیس یکشنبه ۲۰ اردیبهشت در پی فراخوان شاهزاده رضا پهلوی، علیه اعدام‌های جمهوری اسلامی و قطع اینترنت در ایران، در شهر ژنو تجمع کردند.
+</div>
+
+## iranintltv — post 336486
+
+<div align="center">
+  <a href="telegram/content/iranintltv_336486_1778430657.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان مقیم ایتالیا، یکشنبه ۲۰ اردیبهشت در اعتراض به اعدام‌های جمهوری اسلامی، در شهر بولونیا تجمع کردند و شعار «تا آخوند کفن نشود، این وطن وطن نشود» سردادند.
+</div>
+
+## iranintltv — post 336485
+
+<div align="center">
+  <a href="telegram/content/iranintltv_336485_1778430659.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری دولتی ایرنا گزارش داد پاسخ جمهوری اسلامی به آخرین متن پیشنهادی آمریکا برای خاتمه جنگ، به میانجی پاکستانی تحویل داده شده است.
+
+گفت‌وگو با علی شیرازی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## iranintltv — post 336484
+
+<div align="center">
+  <img src="telegram/content/iranintltv_336484_1778430661.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران گزارش دادند در پاسخ جمهوری اسلامی درباره توافق خاتمه جنگ به میانجی پاکستانی، بر پایان جنگ در همه جبهه‌ها، به‌ویژه لبنان، و تامین امنیت کشتیرانی تاکید شده است.
+
+پیش‌تر دونالد ترامپ گفته بود انتظار دارد هر چه سریع‌تر پاسخ جمهوری اسلامی را دریافت کند.
+https://iranintl.com/202605106999
+</div>
+
+---
 📅 بروزرسانی: 1405/02/20 19:19
 ---
 
