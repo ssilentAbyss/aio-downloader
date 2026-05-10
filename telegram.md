@@ -7,6 +7,184 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/20 14:44
+---
+
+## Persian_Trend_Official — post 13818
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13818_1778411677.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 سخنگوی کمیسیون امنیت ملی: از امروز خویشتن‌داری ما تمام شد
+
+▪️هرتعرضی به شناورهای ما،با پاسخ سنگین و قاطع به شناور ها و پایگاه های آمریکایی مواجه خواهد شد
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13817
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13817_1778411677.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دود غلیظ بر فراز اربیل پس از حمله پهپادی به مقر گروه‌های مخالف جمهوری اسلامی
+
+💢منابع محلی از برخاستن ستون‌های دود از اطراف شهر اربیل در شمال عراق خبر می‌دهند؛ پس از آنکه یک پهپاد مواضع گروه‌های کرد مخالف جمهوری اسلامی را هدف قرار داد/نایا
+
+▪️تاکنون جزئیاتی درباره تلفات یا خسارات احتمالی منتشر نشده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13816
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢خبرگزاری صداوسیمای جمهوری اسلامی گزارش داد «علی عبداللهی» از فرماندهان ارشد نظامی ایران با «مجتبی خامنه‌ای» دیدار کرده است.
+
+▪️بر اساس این گزارش:
+
+💢 مجتبی خامنه‌ای در این دیدار از نیروهای مسلح تقدیر کرده
+
+💢 او همچنین از «اقدامات جدید و مسیر ادامه اقدامات برای مقابله قدرتمندانه با دشمنان» سخن گفته است
+
+💢 جزئیات بیشتری درباره ماهیت این اقدامات منتشر نشده است
+
+از زمان انتصاب مجتبی خامنه‌ای در ماه مارس، تاکنون هیچ حضور عمومی یا تصویر رسمی جدیدی از او منتشر نشده و پیام‌هایش معمولاً از طریق رسانه‌های حکومتی قرائت می‌شود
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 19874
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_19874_1778411679.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴در این عکس چه می‌بینید؟
+
+آفتابه، یخچال، مقوا.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19873
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_19873_1778411680.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴این پرستوی حکومتی نمی‌دونه پرستوی نظام یعنی چی.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19872
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴غیر رسمی:
+
+گویا در قشم و شیراز هم انفجارهایی رخ داده.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 389212
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389212_1778411682.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Mother's Day 2026
+
+روزت مبارک مامان ♥️
+#محمدرضاقربانی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389211
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389211_1778411685.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«بچه شیعه باخت نمیده»
+چون نزدیک جام‌جهانی هستیم این مدلیشم ببینید
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389210
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/389210" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ اپلیکیشن اندروید سایت جهانی دربی بت
+
+💰اولین سایت جهانی با امکان شارژ و برداشت ریالی(کارت به کارت)
+
+🔗 برای ورود فیلترشکن روی کشور مناسب قرار دهید مانند فنلاند و المان و....
+
+😀Telegram Channel
+👇
+https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389209
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389209_1778411687.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+---
 📅 بروزرسانی: 1405/02/20 13:40
 ---
 
