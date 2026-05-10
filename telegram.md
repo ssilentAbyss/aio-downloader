@@ -7,6 +7,284 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/20 15:35
+---
+
+## Configir98 — post 8529
+
+<div align="center">
+  <a href="https://t.me/Configir98/8529" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❤️ آپدیت جدید V2rayNG 
+🔤
+
+
+
+🐱 نسخه 2.1.7 universal گیت هاب
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8526
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔐 𝗩𝟮𝗿𝗮𝘆𝗡𝗚 
+➕ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 
+📱
+
+vless://f3ef1255-1807-45d5-8872-324c6943175b@iman.neticoapp.ir:80/?type=ws&encryption=none&flow=&host=srv3.diamond-tech.online&path=%2F#https://t.me/Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8525
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 𝗣𝗿𝗼𝘅𝘆
+
+Host :  37.32.20.64
+Port : 2080
+
+Host : 93.126.6.70
+Port : 3128
+
+Host: 2.185.144.66
+Port: 8080
+
+
+✅ @Configir98
+</div>
+
+## Persian_Trend_Official — post 13822
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13822_1778414716.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ویدیویی از آماده سازی پهپاد های فیبر نوری
+
+💢در چند وقت اخیر FPV های فیبر نوری حزب الله سر صدا زیادی به راه انداخته لذا این ویدیو جهت افزایش اطلاعات علاقه مندان بارگذاری میشود
+
+▪️پهپاد انتحاری از نوع fpv فیبر نوری، با هدف مقابله با جنگ الکترونیک و اخلال‌گرها طراحی شده؛ جایی که پهپادهای عادی معمولاً کور و قطع می‌شوند.
+
+▪️این پهپاد به‌جای ارتباط رادیویی، از کابل فیبر نوری استفاده می‌کند و همین موضوع باعث می‌شود عملاً در برابر جمینگ و اختلال الکترونیکی مقاوم باشد.
+
+▪️این پهپاد هاتوان نفوذ دقیق به مواضع، سنگرها و خودروهای زرهی را دارد و به دلیل تأخیر بسیار کم در انتقال تصویر، کنترل‌پذیری بالایی در لحظات آخر حمله فراهم می‌کند.
+
+💢استفاده گسترده از پهپادهای فیبر نوری در جنگ اوکراین، توجه بسیاری از ارتش‌ها و گروه‌های نظامی از جمله حزب الله را به این فناوری جلب کرده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13821
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13821_1778414717.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع عراقی به روزنامه العربی الجدید گفتند که اسماعیل قاآنی فرمانده نیروی قدس سپاه ایران طی سفری رسمی وارد بغداد شد. این دومین سفر او به بغداد در کمتر از یک ماه است.
+🇮🇷🇮🇶
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13820
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ادعای دفاع هوایی امارات در مقابل دو پهپاد
+
+💢دفاع هوایی امارات متحده عربی اعلام کرد دو موشک ورودی که گفته می‌شود از سمت ایران شلیک شده بودند را رهگیری و منهدم کرده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13819
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13819_1778414718.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ و شکاف در روابط آمریکا با متحدان؛ پیامدهای جنگ ایران
+
+💢یک گزارش تازه رویترز نشان می‌دهد تنش‌های دونالد ترامپ با متحدان سنتی آمریکا، حالا فراتر از یک اختلاف سیاسی معمول رفته و در حال تبدیل شدن به یک تغییر ساختاری در روابط بین‌الملل است.
+
+💢براساس این گزارش، تصمیم‌هایی مثل کاهش بخشی از نیروهای آمریکا در آلمان، احتمال کاهش حضور نظامی در دیگر کشورهای اروپایی و همچنین مواضع مبهم در قبال حملات منطقه‌ای، باعث شده اعتماد متحدان واشنگتن به شدت آسیب ببیند.
+
+▪️اروپا، خاورمیانه و شرق آسیا حالا با یک نگرانی مشترک روبه‌رو هستند:
+آیا آمریکا در یک بحران واقعی همچنان قابل اتکا خواهد بود؟
+
+💢در اروپا، برخی کشورها به سمت افزایش همکاری‌های نظامی مستقل و کاهش وابستگی به آمریکا حرکت کرده‌اند. در آسیا هم کشورهایی مثل ژاپن و کره جنوبی نسبت به میزان تعهد واشنگتن در صورت درگیری احتمالی با چین، دچار تردید شده‌اند.
+
+💢در مقابل، چین و روسیه این وضعیت را یک فرصت می‌بینند تا نفوذ خود را در مناطق مختلف افزایش دهند.
+
+
+🫆:Tony
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 19875
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_19875_1778414718.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نمونه‌ای از کلاهبرداری‌ها و دزدی‌های آخوندهای کثیف.
+اگر می‌خواهید در بهشت جواب بگیرید، در این دنیا باید به ازای هر متر زمین ۱۷۰۰ دلار بهمون پول بدید، سند هم به اسم خودتون زده میشه.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 389222
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389222_1778414720.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرق بین تمدن و توحش
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389221
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت تکنولوژی در منطقه:
+
+‏- افغانستان و ترکیه : اینترنت 5G تست و راه‌اندازی شد.
+‏- عراق: تلگرام رفع فیلتر شد.
+‏- سوریه: سوییفت، ویزا و مستر به سوریه آمدند.
+‏- ایران: رکورد شکنی جدید، قطعی اینترنت به یازدهمین هفته رسید.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389220
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389220_1778414720.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+متین ستوده:
+همه دنیا می‌داند ترامپ دیوانه است.
+
+حالا ببین شما کی هستید که دنیا دست به دامن اون دیوونه شده که شما رو نابود کنه!
+
+اینها واقعا مارو کسخل فرض کردن؟ خب کسکش خونشور کیان پیرفلک و ۴۰هزار جوون ۱۸ و ۱۹دی رو جمهوری اسلامی کشت. برای کی گریه کردی پلشت؟
+
+از قاتل حمایت میکنن، بعد برای قربانی گریه میکنن
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389219
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389219_1778414721.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاید این وسط براتون سوال باشه نظر مراجع در مورد خوردن شیر همسر چیه؟
+
+خامنه ای، مکارم، وحید خراسانی، نوری همدانی: جایز است و مشکل نداره✅
+سیستانی: خورده نشه بهتره❌
+
++ یکی از علما هم گفته من خوردم خوشمزه نبوده، نخورین بهتره :))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389214
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عکسای جدید بانو بیلی آیلیش که خیلی تو ایکس وایرال شده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389213
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏فکر کن یه عالمه درس بخونی که بری خارج یه عالمه درس بخونی.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Configir98 — post 8529
+
+<div align="center">
+  <a href="https://t.me/Configir98/8529" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❤️ آپدیت جدید V2rayNG 
+🔤
+
+
+
+🐱 نسخه 2.1.7 universal گیت هاب
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8526
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔐 𝗩𝟮𝗿𝗮𝘆𝗡𝗚 
+➕ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 
+📱
+
+vless://f3ef1255-1807-45d5-8872-324c6943175b@iman.neticoapp.ir:80/?type=ws&encryption=none&flow=&host=srv3.diamond-tech.online&path=%2F#https://t.me/Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8525
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ 𝗣𝘀𝗶𝗽𝗵𝗼𝗻 𝗣𝗿𝗼𝘅𝘆
+
+Host :  37.32.20.64
+Port : 2080
+
+Host : 93.126.6.70
+Port : 3128
+
+Host: 2.185.144.66
+Port: 8080
+
+
+✅ @Configir98
+</div>
+
+---
 📅 بروزرسانی: 1405/02/20 14:44
 ---
 
