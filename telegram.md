@@ -7,6 +7,67 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/20 21:16
+---
+
+## iranintltv — post 336513
+
+<div align="center">
+  <img src="telegram/content/iranintltv_336513_1778435209.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پادشاهی بحرین اعلام کرد که ادامه حملات «آشکار و گستاخانه» جمهوری اسلامی علیه امارات متحده عربی را به‌شدت محکوم می‌کند.
+
+پیش‌تر نیز دبیرکل شورای همکاری خلیج‌فارس حملات جمهوری اسلامی به امارات متحده عربی و کویت را محکوم کرد و گفت که این اقدامات را «تجاوزکارانه و غیرقابل قبول» می‌داند.
+https://iranintl.com/202605102416
+</div>
+
+## iranintltv — post 336512
+
+<div align="center">
+  <img src="telegram/content/iranintltv_336512_1778435209.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عبدالرضا رحمانی فضلی، سفیر جمهوری اسلامی در چین، گفت: هر توافق احتمالی باید با ضمانت قدرت‌های بزرگ همراه باشد و افزود پکن می‌تواند نقش ضامن هرگونه توافق را بر عهده گیرد.
+
+او افزود: این توافق باید در شورای امنیت سازمان ملل نیز مطرح و تثبیت شود.
+https://iranintl.com/202605104885
+</div>
+
+## iranintltv — post 336511
+
+<div align="center">
+  <img src="telegram/content/iranintltv_336511_1778435210.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاظم غریب‌آبادی، معاون وزیر خارجه جمهوری اسلامی، در پیامی در شبکه اجتماعی ایکس با انتقاد از اعزام ناوهای نظامی فرانسه و بریتانیا به منطقه گفت تامین امنیت تنگه هرمز صرفا در اختیار جمهوری اسلامی است.
+
+او افزود که تنگه هرمز «ملک مشاع قدرت‌های فرامنطقه‌ای» نیست و هرگونه حضور نظامی برای همراهی با «اقدامات آمریکا» در این آبراه با «پاسخ قاطع و فوری» روبه‌رو خواهد شد.
+https://iranintl.com/202605108605
+</div>
+
+## iranintltv — post 336510
+
+<div align="center">
+  <a href="telegram/content/iranintltv_336510_1778435211.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده نشان می‌دهند یکشنبه ۲۰ اردیبهشت ایرانیان مقیم شهرهای بارسلون در اسپانیا، کپنهاگ دانمارک و لاهه در هلند علیه جمهوری اسلامی تجمع کردند.
+</div>
+
+## iranintltv — post 336509
+
+<div align="center">
+  <img src="telegram/content/iranintltv_336509_1778435213.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احمد مرادی، عضو کمیسیون انرژی مجلس گفت: کشورهای منطقه نباید «فریب» دونالد ترامپ و بنیامین نتانیاهو را بخورند و برای دستیابی به آرامش باید با تهران هماهنگ باشند و قدرت جمهوری اسلامی را درک کنند.
+
+او افزود: تنگه هرمز دیگر به وضعیت گذشته بازنخواهد گشت و جمهوری اسلامی بر حفظ این موقعیت راهبردی تاکید دارد.
+https://iranintl.com/202605101132
+</div>
+
+---
 📅 بروزرسانی: 1405/02/20 20:20
 ---
 
