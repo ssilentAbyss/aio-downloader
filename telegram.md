@@ -7,6 +7,229 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/20 17:25
+---
+
+## Configir98 — post 8533
+
+<div align="center">
+  <a href="https://t.me/Configir98/8533" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8532
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👩 به مناسبت روز مادر ، تعداد 200 کانفیگ « 
+⭐️ 2 گیگی یک ماهه 
+👑 » بصورت کاملا رایگان داخل رباتمون شارژ شد ، برای دریافت 
+⬇️
+
+
+🤖 @ConfigFreeiR_Bot
+</div>
+
+## Configir98 — post 8531
+
+<div align="center">
+  <a href="https://t.me/Configir98/8531" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Persian_Trend_Official — post 13827
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13827_1778421342.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ویدیویی از آماده سازی پهپاد های فیبر نوری 💢در چند وقت اخیر FPV های فیبر نوری حزب الله سر صدا زیادی به راه انداخته لذا این ویدیو جهت افزایش اطلاعات علاقه مندان بارگذاری میشود ▪️پهپاد انتحاری از نوع fpv فیبر نوری، با هدف مقابله با جنگ الکترونیک و اخلال‌گرها…
+</div>
+
+## Persian_Trend_Official — post 13826
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصمیم گرفتم لایو های شبانه رو از این به بعد، حدود ساعت 20 به وقت ایران اجرا کنم .
+</div>
+
+## Persian_Trend_Official — post 13825
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_13825_1778421344.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در ساعات گذشته چندین پهپاد انتحاری به سوی کشور امارات کویت قطر پهپاد شلیک شد .
+همچنین یککشتی باربریِ متعلق به کره‌جنوبیخ تو تنگه هرمز با دو تا پهپادِ ناشناس هدف گرفته شده است.
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13824
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_13824_1778421345.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ایرنا؛
+🔸پاسخ ایران به متن پیشنهادی آمریکا ارسال شد
+
+🔹پاسخ جمهوری اسلامی ایران به آخرین متن پیشنهادی آمریکا برای خاتمه جنگ، امروز به میانجی پاکستانی ارسال شد.
+
+🔹سخنگوی وزارت خارجه قبلا چند بار اعلام کرده بود دیدگاه‌ها و ملاحظات ایران راجع به پیشنهادهای آمریکا، بعد از تکمیل بررسی‌ها و جمع‌بندی نهایی، ارسال خواهد شد.
+
+🔹بر اساس طرح پیشنهادی، در این مرحله مذاکرات متمرکز بر موضوع خاتمه جنگ در منطقه خواهد بود.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13823
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_13823_1778421345.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گزارش‌ها از اعزام گسترده هواپیماهای ترابری سنگین آمریکا به خاورمیانه
+
+💢برخی منابع از پرواز و اعزام ۱۳ فروند هواپیمای ترابری نظامی سنگین ارتش آمریکا از پایگاه‌های اروپایی به سمت خاورمیانه طی ساعات اخیر خبر می‌دهند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 19879
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_19879_1778421346.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک فروند KC-135 امریکا در حال پرواز در آسمان خاورمیانه و درحال سوخت‌رسانی به یک F/A-18 سوپر‌هورنت.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19878
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 جمهوری اسلامی : پاسخ خودمون به آمریکا برای پایان دادن به جنگ رو دادیم. @IranianMinds
+</div>
+
+## IranianMinds — post 19877
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 جمهوری اسلامی :
+
+پاسخ خودمون به آمریکا برای پایان دادن به جنگ رو دادیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19876
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۱۰ می روز جهانی مادر است، اما در سرزمین ما، بعضی مادرها فقط مادر نماندند، به درد یک ملت تبدیل شدند.
+مادرانی که فرزندانشان را در راه آزادی از دست دادند و مادرانی که خود، جاویدنام راه ایران شدند.
+نامتان در حافظهٔ این خاک خواهد ماند، مثل نوری خاموش‌نشدنی.
+روز مادر بر تمام مادران غیور و سربلند ایران‌زمین خجسته باد.
+بر آنان که ایستادند، سوختند ، اما نشکستند.
+
+@IranianMinds
+</div>
+
+## configx2ray — post 38713
+
+<div align="center">
+  <a href="https://t.me/ConfigX2ray/38713" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفیگ برای Npv tunnel ⭕️
+
+به هیچ وج دانلود نزنید باهاش
+❤️
+
+رمز فایل : @ConfigX2ray
+
+Channel : https://t.me/ConfigX2ray
+</div>
+
+## configx2ray — post 38712
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😋
+</div>
+
+## Configir98 — post 8533
+
+<div align="center">
+  <a href="https://t.me/Configir98/8533" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+## Configir98 — post 8532
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👩 به مناسبت روز مادر ، تعداد 200 کانفیگ « 
+⭐️ 2 گیگی یک ماهه 
+👑 » بصورت کاملا رایگان داخل رباتمون شارژ شد ، برای دریافت 
+⬇️
+
+
+🤖 @ConfigFreeiR_Bot
+</div>
+
+## Configir98 — post 8531
+
+<div align="center">
+  <a href="https://t.me/Configir98/8531" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛜 𝗡𝗽𝘃 𝗧𝘂𝗻𝗻𝗲𝗹 𝗡𝗮𝗽𝘀𝘁𝗲𝗿𝗻𝗲𝘁𝗩
+
+
+🛡️ Password: @Configir98
+
+
+✅ @Configir98
+</div>
+
+---
 📅 بروزرسانی: 1405/02/20 15:35
 ---
 
