@@ -7,6 +7,51 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/20 11:14
+---
+
+## Dirty_Kids — post 389205
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تتوی جدید ریحانا از نقاشی بچش
+داداش خب یه شیش ماه صبر میکردی شاید تو نقاشی پیشرفت میکرد
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389204
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389204_1778399058.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شکار سربازان و تجهیزات ارتش روسیه با کمک #پهپاد_انتحاری
+🇺🇦🇷🇺
+
+@Dirty_Kids 👻
+</div>
+
+## configx2ray — post 38709
+
+<div align="center">
+  <a href="telegram/content/configx2ray_38709_1778399059.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://f3ef1255-1807-45d5-8872-324c6943175b@iman.neticoapp.ir:80/?type=ws&encryption=none&flow=&host=srv3.diamond-tech.online&path=%2F#https://t.me/ConfigX2ray
+
+ترکیبی با سایفون وصله 
+✅
+
+آموزش استفادع : 
+👇
+https://t.me/ConfigX2ray0/1665
+
+Channel : https://t.me/ConfigX2ray
+</div>
+
+---
 📅 بروزرسانی: 1405/02/20 11:07
 ---
 
