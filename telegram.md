@@ -7,6 +7,24 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/20 12:30
+---
+
+## Persian_Trend_Official — post 13813
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned «https://youtube.com/shorts/3Y-nec_YFoI?si=BzoGOXd-FGHyJLOw»
+</div>
+
+## Persian_Trend_Official — post 13812
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/shorts/3Y-nec_YFoI?si=BzoGOXd-FGHyJLOw
+</div>
+
+---
 📅 بروزرسانی: 1405/02/20 12:21
 ---
 
