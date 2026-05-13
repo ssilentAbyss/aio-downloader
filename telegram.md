@@ -7,6 +7,179 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 03:23
+---
+
+## iranintlTV — post 337081
+
+<div align="center">
+  <a href="telegram/content/iranintlTV_337081_1778716420.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های جمهوری اسلامی از برگزاری رزمایش پنج‌روزه سپاه تهران بزرگ با محوریت مقابله با عملیات «هلی‌برن» نیروهای متخاصم خبر دادند.
+در تصاویر منتشرشده، نیروهای پیاده با سلاح‌های سبک، نیمه‌سنگین و پهپاد به اهداف فرضی، همچون تصویر پارچه‌ای یک بالگرد، شلیک می‌کنند.
+این رزمایش پس از ورود بالگردهای بلک‌هاوک و هواپیمای سوخت‌رسان آمریکا به خاک ایران، در جریان عملیات جست‌وجوی خلبان اف-۱۵، برگزار شده است.
+@iranintltv
+</div>
+
+## iranintlTV — post 337080
+
+<div align="center">
+  <a href="telegram/content/iranintlTV_337080_1778716421.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+موج تازهٔ اعدام جوانان نخبه؛
+احسان افرشته با اتهام «جاسوسی» اعدام شد
+
+جمهوری اسلامی بامداد چهارشنبه حکم اعدام احسان افرشته، زندانی سیاسی متهم به «جاسوسی برای اسرائیل»، را اجرا کرد؛ پرونده‌ای که مانند بسیاری از پرونده‌های امنیتی مشابه، بدون انتشار سند و مدرک مستقل به پایان رسید.
+
+نهادهای حقوق بشری پیش‌تر هشدار داده بودند که اتهامات مطرح‌شده علیه او بر پایهٔ اعترافات اجباری و تحت فشار مطرح شده است.
+
+کامبیز حسینی در «برنامه» به این موضوع می‌پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/HsShW7razys
+@iranintltv
+</div>
+
+## iranintlTV — post 337079
+
+<div align="center">
+  <a href="telegram/content/iranintlTV_337079_1778716423.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد از آلمان: کسی که پول دارو ندارد، آب ندارد، برق ندارد، او هم اعدامی جمهوری اسلامی است
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/HsShW7razys
+@iranintltv
+</div>
+
+## iranintlTV — post 337078
+
+<div align="center">
+  <a href="telegram/content/iranintlTV_337078_1778716425.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمید از بندرعباس: می‌روم خرید، ولی فقط می‌توانم به اندازهٔ جیبم خرید کنم، نه نیازم
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/HsShW7razys
+@iranintltv
+</div>
+
+## iranintlTV — post 337077
+
+<div align="center">
+  <a href="telegram/content/iranintlTV_337077_1778716427.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فریبرز از خوزستان: مردمی که اینترنت ندارند، چه کار کنند؟ ایرانی‌های خارج از کشور کمک کنند
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/HsShW7razys
+@iranintltv
+</div>
+
+## iranintlTV — post 337076
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337076" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: ایران کارت بازی دیگران
+@iranintlTV
+</div>
+
+## iranintlTV — post 337075
+
+<div align="center">
+  <a href="telegram/content/iranintlTV_337075_1778716429.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرامرز از استکهلم: به ترامپ توجه نکنید؛ او در حال جنگ سرد است؛ما باید مسیر خودمان را برویم
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/HsShW7razys
+@iranintltv
+</div>
+
+## iranintlTV — post 337074
+
+<div align="center">
+  <a href="telegram/content/iranintlTV_337074_1778716431.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احمد از انگلستان: مردم ایران صبرشان استراتژیک و تاریخی است و می‌دانند کی باید به آب بزنند
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/HsShW7razys
+@iranintltv
+</div>
+
+## iranintlTV — post 337073
+
+<div align="center">
+  <img src="telegram/content/iranintlTV_337073_1778716433.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک‌تایمز به نقل از مقام‌های آمریکایی گزارش داد شرکت‌های چینی با جمهوری اسلامی درباره فروش سلاح در حال گفت‌وگو بوده‌اند و قصد داشته‌اند این تسلیحات را از طریق کشورهای دیگر ارسال کنند تا منشا کمک نظامی پنهان بماند.
+مقام‌های آمریکایی گفتند دست‌کم یکی از کشورهای ثالث در آفریقا قرار دارد، اما مشخص نیست آیا محموله‌ای به آن کشور رسیده است یا نه.
+مقام‌هایی که در جریان این اطلاعات قرار گرفته‌اند، درباره اینکه آیا سلاح‌ها پیش‌تر به کشورهای ثالث ارسال شده‌اند یا نه، به جمع‌بندی‌های متفاوتی رسیده‌اند. با این حال، از زمان آغاز جنگ کنونی علیه جمهوری اسلامی، به نظر نمی‌رسد هیچ سلاح چینی در میدان نبرد علیه نیروهای آمریکایی یا اسرائیلی استفاده شده باشد.
+هنوز مشخص نیست چه تعداد سلاح منتقل شده یا مقام‌های چینی تا چه اندازه این فروش‌ها را تایید کرده‌اند.
+
+https://iranintl.com/202605134264
+</div>
+
+## iranintlTV — post 337072
+
+<div align="center">
+  <a href="telegram/content/iranintlTV_337072_1778716433.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر نخست‌وزیری اسرائیل اعلام کرد بنیامین نتانیاهو در جریان جنگ علیه جمهوری اسلامی به‌صورت محرمانه به امارات سفر و با محمد بن زاید دیدار کرده است. رادیو ملی اسرائیل نیز گزارش داد این نخستین بار نیست که نتانیاهو به امارات رفته، اما برای نخستین‌بار است که این موضوع به‌صورت رسمی تایید می‌شود.
+
+گفت‌وگو با بن سبطی، پژوهشگر ایران و اسرائیل
+@iranintltv
+</div>
+
+## iranintlTV — post 337071
+
+<div align="center">
+  <a href="telegram/content/iranintlTV_337071_1778716435.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی موج جدید بیکاری در ایران در سایه جنگ، سرکوب و قطعی اینترنت، آمار رسمی از بیش از ۲۰۰ هزار متقاضی دریافت بیمه بیکاری خبر می‌دهد. مسعود پزشکیان پیش‌تر در واکنش به تورم و گرانی گفته بود کشور به‌شدت به صرفه‌جویی نیاز دارد.
+
+گفت‌وگو با جمشید اسدی، اقتصاددان
+@iranintltv
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 02:20
 ---
 
