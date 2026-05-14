@@ -7,6 +7,259 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 01:40
+---
+
+## Redline_news1 — post 8329
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نیویورک تایمز:
+
+قصد ترامپ از تغییر نام عملیات «خشم حماسی» به «چکش سنگین» این است که یک عملیات جدید ۶۰ روزه حمله به ایران شروع کند
+
+✍🏻 NAD
+🔴@redline_news1 | خط قرمز خبرها
+</div>
+
+## Redline_news1 — post 8328
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+یا رهبران ایران کار درست را انجام خواهند داد، یا ما کار را تمام خواهیم کرد
+
+✍🏻 NAD
+🔴@redline_news1 | خط قرمز خبرها
+</div>
+
+## Redline_news1 — post 8327
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کامران غضنفری، نماینده مجلس:
+
+شواهد و قرائن نشان می‌دهد که آمریکا و اسرائیل قصد انجام یک عملیات گسترده برای تصرف برخی از جزایر جنوب را دارند
+
+✍🏻 NAD
+🔴@redline_news1 | خط قرمز خبرها
+</div>
+
+## Redline_news1 — post 8326
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تهران زلزله اومد؟
+</div>
+
+## Redline_news1 — post 8325
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴  علی قلهکی فعال رسانه:
+
+تا امروز بیش از ۴۹۰ هزار سیمکارت پرو فعال شده است
+
+
+✍🏻 NAD
+🔴@redline_news1 | خط قرمز خبرها
+</div>
+
+## Redline_news1 — post 8324
+
+<div align="center">
+  <img src="telegram/content/Redline_news1_8324_1778796635.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇦🇪🇮🇷⚡️ یک کارخانه بزرگ فرآوری گاز در امارات متحده عربی که در نتیجه حملات ایران در طول جنگ آسیب دیده است، انتظار نمی‌رود قبل از سال ۲۰۲۷ به طور کامل تعمیر شود، طبق گزارش FT.
+
+➡️ تأسیسات حبشان، که توسط ADNOC Gas اداره می‌شود و بزرگ‌ترین کارخانه فرآوری گاز کشور است، در حال حاضر با حدود ۶۰٪ ظرفیت فعالیت می‌کند.
+
+➡️ این شرکت انتظار دارد تا پایان سال ۸۰٪ عملیات را بازیابی کند و بازیابی کامل را برای سال ۲۰۲۷ هدف‌گذاری کرده است.
+
+
+✅@redline_news1 | خط قرمز خبرها
+</div>
+
+## Redline_news1 — post 8323
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ایران به شورای امنیت سازمان ملل
+
+اطلاع داده است که در صورت اعزام زیردریایی هسته‌ای آمریکا به خاورمیانه، سطح غنی سازی ۱۰ تن اورانیوم باقی مانده را به ۶۰ درصد خواهد رساند!
+
+✍🏻 NAD
+🔴@redline_news1 | خط قرمز خبرها
+</div>
+
+## Redline_news1 — post 8322
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کانال ۱۲ اسرائیل:
+
+رئیس‌جمهور ترامپ تمایل دارد دستور ازسرگیری درگیری با ایران را صادر کند
+
+
+✍🏻 NAD
+🔴@redline_news1 | خط قرمز خبرها
+</div>
+
+## Redline_news1 — post 8321
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+🚨اینترنتت ممکنه هر لحظه محدودتر بشه… الان وقتشه بدون قطعی وصل بمونی 
+🚀 سرور اختصاصی استارلینک 
+💎 تانل پایدار 💯 عبور کامل از محدودیت‌ها ❗️ظرفیت محدود 
+👇
+👇
+👇 https://t.me/netlockvpn
+</div>
+
+## Redline_news1 — post 8320
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚩Red Line news | ردلاین نیوز pinned «
+⭕️
+🚨اینترنتت ممکنه هر لحظه محدودتر بشه… الان وقتشه بدون قطعی وصل بمونی 
+🚀 سرور اختصاصی استارلینک 
+💎 تانل پایدار 💯 عبور کامل از محدودیت‌ها ❗️ظرفیت محدود 
+👇
+👇
+👇 https://t.me/netlockvpn»
+</div>
+
+## Redline_news1 — post 8319
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+🚨اینترنتت ممکنه هر لحظه محدودتر بشه…
+الان وقتشه بدون قطعی وصل بمونی
+
+
+🚀 سرور اختصاصی استارلینک
+
+💎 تانل پایدار
+💯 عبور کامل از محدودیت‌ها
+
+❗️ظرفیت محدود
+
+👇
+👇
+👇
+
+https://t.me/netlockvpn
+</div>
+
+## Redline_news1 — post 8313
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ به Axios:
+
+من پاسخ ایران را با نتانیاهو بررسی کردم.
+
+
+✍🏻sa
+
+
+✅@Redline_news1 | خط
+</div>
+
+## Redline_news1 — post 8312
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ: همین الان پاسخ «نمایندگان» ایران را خواندم. من آن را دوست ندارم - کاملاً غیرقابل قبول است.
+
+✍🏻sa
+
+
+✅@Redline_news1 | خط
+</div>
+
+## Redline_news1 — post 8311
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری؛
+
+دفاع امارات متحده عربی:
+
+دفاع هوایی ما دو موشک ورودی از ایران را رهگیری کرد
+
+✍🏻 NAD
+🔴@redline_news1 | خط قرمز خبرها
+</div>
+
+## Redline_news1 — post 8310
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚩Red Line news | ردلاین نیوز pinned Deleted message
+</div>
+
+## Redline_news1 — post 8309
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚩Red Line news | ردلاین نیوز pinned Deleted message
+</div>
+
+## Redline_news1 — post 8308
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پزشکیان :
+
+خاموش کردن یک چراغ مثل شلیک تیر به سمت دشمنه.
+
+✍🏻 NAD
+🔴@redline_news1 | خط قرمز خبرها
+</div>
+
+## Redline_news1 — post 8307
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دبیر انجمن پیوند کلیه ایران :
+
+در حوزه آنتی‌بیوتیک‌ها با مشکلاتی مواجه هستیم و برخی از این داروها بسیار نایاب شدن! در حال حاضر کمبود برخی داروهای عمومی و در دسترس، به‌تدریج محسوس شده.
+
+✍🏻 NAD
+🔴@redline_news1 | خط قرمز خبرها
+</div>
+
+## Redline_news1 — post 8306
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صدای انفجار در چابهار شنیده شده ✍🏻sa 
+✅@Redline_news1 | خط
+</div>
+
+## Redline_news1 — post 8305
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دبیر انجمن پیوند کلیه ایران:
+در حوزه آنتی‌بیوتیک‌ها با مشکلاتی مواجه هستیم و برخی از این داروها بسیار نایاب شدن!
+
+در حال حاضر کمبود برخی داروهای عمومی و در دسترس، به‌تدریج محسوس شده.
+
+✍🏻sa
+
+
+✅@Redline_news1 | خط
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 01:37
 ---
 
