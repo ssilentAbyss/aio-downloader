@@ -7,6 +7,34 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 21:30
+---
+
+## Redline_news1 — post 8335
+
+<div align="center">
+  <img src="telegram/content/Redline_news1_8335_1778868005.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅سرور های ⚡️بیزینس⚡️ آنلاین✅
+
+✅فروش بیزینس باز است✅
+
+هر 1 گیگ
+💵499/000 تومان💵
+
+10 گیگ به بالا
+💵449/000 تومان💵
+
+%🔟 تخفیف روی پرداخت با 🪙ارز دیجیتال🪙
+
+👨🏻‍💻پشتیبانی👨🏻‍💻
+@supstarvp
+🤖ربات فروش🤖
+https://t.me/vpnstaropen_bot
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 19:55
 ---
 
