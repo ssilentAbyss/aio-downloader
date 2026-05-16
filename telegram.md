@@ -7,6 +7,82 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 00:11
+---
+
+## Redline_news1 — post 8342
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇨🇳🇮🇷 رئیس مجلس ایران قالیباف:
+جهان در آستانه نظم نوینی ایستاده است.
+
+همانطور که رئیس‌جمهور شی گفت «تحولی که در یک قرن دیده نشده بود در سراسر جهان در حال تسریع است»، و من تأکید می‌کنم که مقاومت ۷۰ روزه ملت ایران این تحول را تسریع کرده است.
+
+آینده متعلق به جنوب جهانی است.
+
+✍🏼a.h
+
+🔴 @Redline_news1 | خط قرمز خبرها
+</div>
+
+## Redline_news1 — post 8341
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇱 نتانیاهو: اگر آمریکا بخواد جنگ رو بازم شروع کنه، ما آماده خواهیم بود.
+
+🔥💥
+
+🔴 @Redline_news1 |خط قرمز خبرها
+</div>
+
+## Redline_news1 — post 8340
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢🇺🇸🇷🇺 بلومبرگ: آمریکا معافیت فروش نفت روسیه را متوقف کرد.
+
+🔴 @Redline_news1 | خط قرمز خبرها
+</div>
+
+## Redline_news1 — post 8339
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 رسول جلیلی، عضو شورای عالی فضای مجازی،چهره نزدیک به جلیلی: اینستاگرام مثل اف۳۵، اف۲۲ و ای۱۰ آمریکا است، مثل آن اژدری است که به ناو دنا شلیک شد.
+
+😂🫠
+
+🔴 @Redline_news1 | خط قرمز خبرها
+</div>
+
+## Redline_news1 — post 8338
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢🇵🇰🇮🇷 العربیه به نقل از پاکستان: حضور وزیر کشور پاکستان در ایران یک روز دیگر ادامه خواهد یافت تا در مورد چشم‌انداز ازسرگیری مذاکرات گفت‌وگو شود ✍🏼a.h 🔴 @Redline_news1 | خط قرمز خبرها
+</div>
+
+## Redline_news1 — post 8337
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢🇵🇰🇮🇷 العربیه به نقل از پاکستان: حضور وزیر کشور پاکستان در ایران یک روز دیگر ادامه خواهد یافت تا در مورد چشم‌انداز ازسرگیری مذاکرات گفت‌وگو شود
+
+✍🏼a.h
+
+🔴 @Redline_news1 | خط قرمز خبرها
+</div>
+
+## Redline_news1 — post 8336
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👀🙋‍♀
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 23:17
 ---
 
