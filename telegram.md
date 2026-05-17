@@ -7,6 +7,30 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 18:13
+---
+
+## iranintltv — post 337637
+
+<div align="center">
+  <img src="telegram/content/iranintltv_337637_1779029036.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده، سنتکام، اعلام کرد از زمان آغاز محاصره دریایی بنادر و سواحل جنوبی ایران، ۸۱ کشتی تجاری مجبور به تغییر مسیر شده‌اند و چهار شناور دیگر نیز پس از هدف قرار گرفتن، از کار افتاده‌اند تا اجرای این محاصره تضمین شود.
+https://iranintl.com/202605177479
+</div>
+
+## iranintltv — post 337636
+
+<div align="center">
+  <a href="telegram/content/iranintltv_337636_1779029037.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای یکشنبه ۲۷ اردیبهشت
+@iranintltv
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 18:00
 ---
 
