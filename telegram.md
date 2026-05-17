@@ -7,6 +7,28 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 12:54
+---
+
+## Redline_news1 — post 8344
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷🇨🇳️«محمدباقر قالیباف»، به عنوان نماینده ویژه ایران در امور چین منصوب شد
+
+🔴 @Redline_news1 | خط قرمزخبرها
+</div>
+
+## Redline_news1 — post 8343
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‼️تابلویی در ساحل تنگه هرمز نصب شده که روی آن نوشته شده «ورود سربازان و سگ‌های آمریکایی ممنوع!
+
+🔴 @Redline_news1 | خط قرمز خبرها
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 11:14
 ---
 
