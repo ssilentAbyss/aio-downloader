@@ -7,6 +7,64 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 21:11
+---
+
+## iranintltv — post 337664
+
+<div align="center">
+  <img src="telegram/content/iranintltv_337664_1779039711.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی سخنگوی کمیسیون امنیت ملی مجلس، گفت: «آمریکا یا باید شرایط جمهوری اسلامی را بپذیرد و تسلیم دیپلمات‌های ما شود و یا اینکه از موضع قدرت با او مذاکره می‌کنیم و باید تسلیم موشک‌های ما شود.»
+او افزود: «تاریخ تنگه هرمز را باید به قبل و بعد از کشته‌شدن علی خامنه‌ای تقسیم کرد.»
+https://iranintl.com/202605179775
+</div>
+
+## iranintltv — post 337663
+
+<div align="center">
+  <a href="telegram/content/iranintltv_337663_1779039712.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه کان اسرائیل گزارش داد بنیامین نتانیاهو و دونالد ترامپ در تماس تلفنی‌ای که بیش از نیم ساعت طول کشید، درباره احتمال ازسرگیری درگیری با جمهوری اسلامی گفت‌وگو کردند.
+
+گفت‌وگو با منشه امیر، کارشناس امور خاورمیانه
+@iranintltv
+</div>
+
+## iranintltv — post 337662
+
+<div align="center">
+  <a href="telegram/content/iranintltv_337662_1779039713.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران‌اینترنشنال می‌گوید: «من هم مثل خیلی از هموطنان بیکار شدم و برای ادامه زندگی، با قسط و قرض یک کامیون خریدم. حالا سوخت خیلی کم است و ناچارم یک لیتر گازوئیل را بین ۵۰ تا ۷۵ هزار تومان بخرم که اصلا مقرون به‌صرفه نیست.»
+</div>
+
+## iranintltv — post 337661
+
+<div align="center">
+  <img src="telegram/content/iranintltv_337661_1779039714.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در شبکه تروث سوشال نوشت که زمان برای ایران به‌سرعت در حال سپری شدن است و بهتر است آن‌ها هرچه زودتر اقدام کنند در غیر این صورت «چیزی از آن‌ها باقی نخواهد ماند». ترامپ تاکید کرد: «زمان بسیار حیاتی است.»
+https://iranintl.com/202605171452
+</div>
+
+## iranintltv — post 337659
+
+<div align="center">
+  <img src="telegram/content/iranintltv_337659_1779039715.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عبدالله بن زاید آل‌نهیان، وزیر خارجه امارات متحده عربی پس از حمله پهپادی به نیروگاه هسته‌ای این کشور، تلفنی با رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی گفت‌وگو کرده است.
+
+به گزارش خبرگزاری دولتی امارات متحده عربی، وزیر خارجه این کشور تاکید کرد که ابوظبی حق کامل دارد به چنین «حملات تروریستی» پاسخ دهد.
+https://iranintl.com/202605177152
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 20:10
 ---
 
