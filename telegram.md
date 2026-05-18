@@ -7,6 +7,129 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 09:28
+---
+
+## iranintltv — post 337724
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337724" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار بامدادی | دوشنبه ۲۸ اردیبهشت
+@iranintlTV
+</div>
+
+## iranintltv — post 337723
+
+<div align="center">
+  <a href="telegram/content/iranintltv_337723_1779083917.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻محمد تقوی، ایران‌اینترنشنال در برنامه هت‌تریک درباره اعلام لیست تیم ملی گفت: «امیر قلعه‌نویی در حالی به مسجد جمکران رفت که با خودش عکاس برد و اگر نمی‌خواست ریا شود می‌توانست کلاه بر سرش بگذارد و به مسائل اعتقادی‌اش بپردازد. او چاپلوس‌ترین بازیکنان را به تیم ملی دعوت کرد.»
+
+🔹تماشای نسخه کامل هت‌تریک؛👇
+https://youtu.be/gw3eJ0R9R5Y
+
+@iranintltvsport
+</div>
+
+## iranintltv — post 337722
+
+<div align="center">
+  <a href="telegram/content/iranintltv_337722_1779083919.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در روز جهانی ارتباطات، مسعود پزشکیان بدون اشاره به قطعی طولانی‌مدت اینترنت در ایران، دسترسی باکیفیت به خدمات دیجیتال را «حق مردم» دانست و نوشت دولت او برای برقرار ماندن ارتباطات، شبانه‌روز تلاش می‌کند.
+
+گفت‌وگو با کامیار بهرنگ، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## iranintltv — post 337721
+
+<div align="center">
+  <img src="telegram/content/iranintltv_337721_1779083921.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ناصر عتباتی، رییس کل دادگستری آذربایجان غربی، از توقیف اموال ۱۲۹ نفر در این استان به اتهام «اقدامات ضدامنیتی و همکاری با کشورهای متخاصم» خبر داد. او تاکید کرد قوه قضاییه به این روند توقیف اموال «با قدرت» ادامه خواهد داد.
+https://iranintl.com/202605185365
+</div>
+
+## iranintltv — post 337720
+
+<div align="center">
+  <a href="telegram/content/iranintltv_337720_1779083922.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه دیلی‌میل در گزارشی، به روایت بازداشت‌شدگان ایرانی از شکنجه، آزار جنسی و خشونت روانی در زندان‌های جمهوری اسلامی پرداخت و نوشت این موارد نشان‌دهنده الگوی سازمان‌یافته‌ای از سرکوب و ارعاب مخالفان است.
+
+گفت‌وگو با رقیه رضایی، روزنامه‌نگار و عضو تحریریه ایران‌وایر
+@iranintltv
+</div>
+
+## iranintltv — post 337719
+
+<div align="center">
+  <a href="telegram/content/iranintltv_337719_1779083925.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جاویدنامان انقلاب ملی ایرانیان
+«رها بهلولی‌پور» در ۱۸ دی‌ماه در جریان اعتراضات در میدان فاطمی تهران، مورد اصابت گلوله نیروهای سرکوب جمهوری اسلامی قرار گرفت و در ۱۹ دی‌ماه جان باخت. نامش در حافظه‌ی این سرزمین می‌ماند و یادش چراغ راه آزادی‌خواهان است.
+
+@iranintltv
+</div>
+
+## iranintltv — post 337718
+
+<div align="center">
+  <a href="telegram/content/iranintltv_337718_1779083927.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای دوشنبه ۲۸ اردیبهشت
+@iranintltv
+</div>
+
+## iranintltv — post 337717
+
+<div align="center">
+  <img src="telegram/content/iranintltv_337717_1779083929.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن رضایی، مشاور نظامی مجتبی خامنه‌ای، گفت: «آمریکا پس از شکست سختی که از جمهوری اسلامی خورد، در حال سقوط است.» او به ارتش ایالات‌متحده هشدار داد: «قبل از اینکه دریای عمان به گورستانی برای ناوهای شما تبدیل شود، خودتان عقب بکشید.»
+محسن رضایی گفت: «یکی از سه ناو آمریکایی که از دریای عمان وارد خلیج فارس شده بود، با موشک‌های ما آسیب دید، اما آمریکا صدایش را درنمی‌آورد.»
+او تاکید کرد: تنگه هرمز برای تجارت باز است، اما برای لشکرکشی و ناامنی بسته خواهد بود.
+
+https://iranintl.com/202605182971
+</div>
+
+## iranintltv — post 337716
+
+<div align="center">
+  <img src="telegram/content/iranintltv_337716_1779083930.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارک کارنی، نخست‌وزیر کانادا، در ایکس نوشت کشورش در همراهی با آژانس بین‌المللی انرژی اتمی حمله‌های پهپادی به نیروگاه هسته‌ای براکه در امارات متحده عربی را محکوم می‌کند و در کنار دوستان خود در امارات متحده عربی می‌ایستد.
+کارنی با هشدار درباره اینکه هدف قرار دادن تاسیسات هسته‌ای صلح‌آمیز خطرات جدی برای جان انسان‌ها و محیط زیست به همراه دارد، بر ضرورت فوری خویشتنداری و کاهش تنش در منطقه تاکید کرد.
+
+https://iranintl.com/202605180232
+</div>
+
+## iranintltv — post 337715
+
+<div align="center">
+  <img src="telegram/content/iranintltv_337715_1779083931.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آنیتا آناند، ‌وزیر خارجه کانادا، هدف قرار دادن تاسیسات انرژی هسته‌ای صلح‌آمیز را غیرقابل قبول دانست و بر همبستگی کشورش با امارات متحده عربی در ارتباط با حملات پهپادی به نیروگاه هسته‌ای براکه در این کشور تاکید کرد.
+او نوشت: «قطعنامه‌های آژانس بین‌المللی انرژی اتمی و قوانین بین‌المللی هر دو تاکید می‌کنند که هدف قرار دادن تأسیسات انرژی هسته‌ای صلح‌آمیز غیرقابل قبول است.»
+آناند اشاره کرد که در تماس با همتای خود در امارات متحده عربی حمایت کامل خود را از این کشور ابراز داشته است، و نوشت: «کانادا از تحقیقات کامل در مورد این حملات حمایت می‌کند و از جامعه بین‌المللی می‌خواهد که آنها را به طور مشابه محکوم کند.»
+
+
+https://iranintl.com/202605188323
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 05:06
 ---
 
